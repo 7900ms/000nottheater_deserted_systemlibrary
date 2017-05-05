@@ -7,4 +7,4 @@
 -
 
 <br><br><br><br>
-[职场人格](http://www.hbrchina.org/2017-03-06/5036.html#德勤开发了“商业化学反应”（Business Chemistry）系统，将员工分为4大类职场人格，并找到了达成共同目标的相关战略)[_](http://www.hbrchina.org/2017-03-27/5094.html#开拓者注重可能性,守护者注重稳定,推动者注重挑战,整合者注重联系)
+[职场人格](http://www.hbrchina.org/2017-03-06/5036.html#德勤开发了“商业化学反应”（Business Chemistry）系统，将员工分为4大类职场人格，并找到了达成共同目标的相关战略)<br>[_](http://www.hbrchina.org/2017-03-27/5094.html#开拓者注重可能性,守护者注重稳定,推动者注重挑战,整合者注重联系)
