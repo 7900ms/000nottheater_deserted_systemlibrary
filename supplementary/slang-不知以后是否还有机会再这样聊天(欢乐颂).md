@@ -45,5 +45,6 @@ wow 你简直是把潜伏在我脑子里最深层的刻薄给诱导出来了
 
 6
 [老谭](http://blog.sina.com.cn/s/blog_6e6cb5140102wbzo.html)
+[从魏兄到老谭](http://blog.sina.com.cn/s/blog_b31524760102wfzu.html#laotan既圆滑世故，又透着几分豪爽和仗义，他看似游戏人间，放荡不羁爱自由，过着轻松释然的生活，其实将一切都掌握在手心里，看问题很是透彻。)
 
 -
