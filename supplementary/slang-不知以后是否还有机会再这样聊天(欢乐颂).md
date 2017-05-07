@@ -40,4 +40,7 @@ wow 你简直是把潜伏在我脑子里最深层的刻薄给诱导出来了
 [内地人 应勤](http://baike.baidu.com/item/应勤)
 [1](https://www.douban.com/group/topic/100201765/)
 
+5
+[欢乐颂 包亦凡 自恋狂](https://www.youtube.com/watch?v=bkynVlH1UsM)
+
 -
