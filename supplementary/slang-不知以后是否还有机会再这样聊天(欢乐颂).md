@@ -43,4 +43,7 @@ wow 你简直是把潜伏在我脑子里最深层的刻薄给诱导出来了
 5
 [欢乐颂 包亦凡 自恋狂](https://www.youtube.com/watch?v=bkynVlH1UsM)
 
+6
+[老谭](http://blog.sina.com.cn/s/blog_6e6cb5140102wbzo.html)
+
 -
