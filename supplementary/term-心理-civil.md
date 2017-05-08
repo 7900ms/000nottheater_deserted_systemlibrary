@@ -11,6 +11,6 @@ im fine, im civil, what else do you want?
 
 = = = 脑容量回收站 = = =
 
-你满意了？登鼻子上脸吗
+你满意了？登鼻子上脸吗。真的好烦人
 
 -
