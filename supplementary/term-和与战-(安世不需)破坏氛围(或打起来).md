@@ -41,11 +41,11 @@
 
 link
 
-[term-聊句-适可而止句](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊句-适可而止句.md)
+[term-聊句-适可而止句](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊句-适可而止句.md) 和为贵
 
-[term-聊句-‘我没有别的意思’](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊句-‘我没有别的意思’.md)
+[term-聊句-‘我没有别的意思’](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊句-‘我没有别的意思’.md) 劝和
 
-[term-心理-civil](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-civil.md)
+[term-心理-civil](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-civil.md) 和是高素质 是civil
 
 
 
