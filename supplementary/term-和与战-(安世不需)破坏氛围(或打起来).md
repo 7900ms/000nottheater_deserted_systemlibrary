@@ -37,6 +37,11 @@
 
 有了自由发言，却破坏了氛围，oh no, u deserve free-speech and everyone deserve free-speech. u now got to end up with ur own shit.
 
+
+the relationship of finding same kinda ppl：
+
+only with peace， we find and enjoy same kinda ppl
+
 = = =
 
 link
