@@ -7,7 +7,7 @@ im fine, im civil, what else do you want?
 
 = = = 脑容量回收站 = = =
 
-寻找同类 - 第二种寻情：让自己陷入不好的境地
+寻找同类 - [第二种寻情](https://github.com/7900ms/000nottheater_deserted_forfindingmore/blob/master/self-doittrulySTAR/README.md)：让自己陷入不好的境地
 
 = = = 脑容量回收站 = = =
 
