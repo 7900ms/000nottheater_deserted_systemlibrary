@@ -38,13 +38,14 @@
 有了自由发言，却破坏了氛围，oh no, u deserve free-speech and everyone deserve free-speech. u now got to end up with ur own shit.
 
 
-the relationship of finding same kinda ppl：
+the relationship of finding same kinda ppl (和与战，与寻找同类-第二种寻情 之间的关系)：
 
-only with peace， we find and enjoy same kinda ppl
+only with peace， we find and enjoy same kinda ppl 可以找到同类
 
-the relationship of peace
+the relationship of peace (和与战，与civil的关系)：
 
-under peace，who is not civil, is to be despisded
+under peace，who is not civil, is to be despisded 可以适可而止, 保持高素质
+
 
 
 = = =
