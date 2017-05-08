@@ -45,7 +45,7 @@ link
 
 [term-聊句-‘我没有别的意思’](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊句-‘我没有别的意思’.md) 劝和
 
-[term-心理-civil](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-civil.md) 和是高素质 是civil
+[term-心理-civil](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-civil.md) 和(别招惹别人)是高素质 是civil
 
 
 
