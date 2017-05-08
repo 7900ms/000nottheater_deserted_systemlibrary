@@ -42,6 +42,11 @@ the relationship of finding same kinda ppl：
 
 only with peace， we find and enjoy same kinda ppl
 
+the relationship of peace
+
+under peace，who is not civil, is to be despisded
+
+
 = = =
 
 link
