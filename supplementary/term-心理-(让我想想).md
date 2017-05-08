@@ -11,7 +11,7 @@ ahhh (让我想想) ... squeeze out of it ?
 
 诚心诚意 no subterfuge
 
-想灌我毒奶 set me up
+想灌我毒奶 set me up [-](https://bbs.hupu.com/19151905.html)
 
 = = = 脑容量回收站 = = =
 
@@ -28,4 +28,4 @@ ahhh (让我想想) ... squeeze out of it ?
 -
 
 
-(让我想想)一个和阴险有关的词 -> 想灌我毒奶】[-](https://bbs.hupu.com/19151905.html)
+(让我想想)一个和阴险有关的词 -> 想灌我毒奶】
