@@ -13,4 +13,11 @@ im fine, im civil, what else do you want?
 
 你满意了？登鼻子上脸吗。 is that what u want?  (its not like civil)
 
+
+he is creative, but he know when to back off.
+
+他很有创新性 但又有度 知道什么时候适可而止
+
+[-- 午夜巴萨罗纳 67:05](http://www.bilibili.com/video/av2065903/)
+
 -
