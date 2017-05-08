@@ -20,4 +20,8 @@ he is creative, but he know when to back off.
 
 [-- 午夜巴萨罗纳 67:05](http://www.bilibili.com/video/av2065903/)
 
+= = = 脑容量回收站 = = =
+
+你这么优秀的有逻辑的大脑，居然只在聊一些Google就能搜索到的事情？简直逊爆了
+
 -
