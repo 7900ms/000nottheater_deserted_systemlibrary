@@ -19,10 +19,13 @@ Cristina说过同样的话
 
 = = = 脑容量回收站 = = =
 
-为什么会抓狂？
+为什么会抓狂？<br>
 对这种 欠缺表达力 的感觉，很抓狂。想说啥 说不出来，没有合适的语言说出来。
 
 
 [表达力的一种 - 一种语言表达给另一个人 translation](https://github.com/7900ms/000nottheater_deserted_forfindingmore/blob/master/tech-translation/README.md)
 
--
+= = = 脑容量回收站 = = =
+
+有表达力就很爽
+
