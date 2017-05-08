@@ -38,6 +38,8 @@ im so deserving. im so good that i deserve you.
 
 Vicky觉得这种这个男人很值得，欧洲风情值得她(🐻)去在里面
 
+She saw herself more a European sould, in tune with the thinkers and artists she felt expressed her tragic, romantic, freethinking view of life.
 
+她把自己视为典型欧洲人，与那个把她殆尽悲剧而又浪漫的思想自由的生活的思想家和艺术家非常合拍
 
 -
