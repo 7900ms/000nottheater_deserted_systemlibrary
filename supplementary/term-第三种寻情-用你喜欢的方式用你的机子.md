@@ -35,3 +35,13 @@
 - 交往层次较高 启发人
 - 交往层次较低 指挥军人 带劲 较真 (我层次高 通过指挥人来实现，最终结果->都听我)
 - 交往层次高 人会心服口服 自己给你干事，不想去过多的控制人。 (我层次高，高到**不需要通过指挥人来实现**，高到通过为人服务来实现，最终结果->人缘好)
+
+= = = 脑容量回收站 = = =
+
+this warm feeling
+
+it deserves me(🐻). cuz i am a bear with nice physique, cute face, good temper, smiling eyes
+
+i deserves it(🎁). cuz i have worked hard
+
+[值得](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-两性-值得.md)
