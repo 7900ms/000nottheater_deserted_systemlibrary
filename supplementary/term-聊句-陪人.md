@@ -35,6 +35,6 @@ hating every minute of being together. I just couldn't move.
 
 陪人 为什么好？
 
-因为就没让别人落单呀，有[服务别人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/small/第三种寻情.md) 。这是更高的寻找同类的感情：这是隐秘的最好的事
+因为就没让别人落单呀，有[服务别人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/small/第三种寻情.md) 。这是更高的寻找同类的感情：这是隐秘的最好的事，具体事情具体分析之后 做最好的事
 
 -
