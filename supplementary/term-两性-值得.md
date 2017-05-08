@@ -31,3 +31,13 @@ i deserve you(🎁).
 
 im so deserving. im so good that i deserve you.
 (i have worked hard, have produced fruites, have earned reputation.)
+
+= = = 脑容量回收站 = = =
+
+[午夜巴塞罗那 45:50](http://www.bilibili.com/video/av2065903)
+
+Vicky觉得这种这个男人很值得，欧洲风情值得她(🐻)去在里面
+
+
+
+-
