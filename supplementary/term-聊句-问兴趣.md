@@ -5,7 +5,7 @@
 
 = = = 脑容量回收站 = = =
 
-好的问题，打开僵局，而不是像 [第二种寻情](https://github.com/7900ms/000nottheater_deserted_forfindingmore/blob/master/self-doittrulySTAR/README.md) 自己把话聊死。
+好的问题，打开僵局，而不是像 [第二种寻情(如果想要寻找同类)](https://github.com/7900ms/000nottheater_deserted_forfindingmore/blob/master/self-doittrulySTAR/README.md) 自己把话聊死。
 
 可以保持 [civil](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-civil.md)
 
