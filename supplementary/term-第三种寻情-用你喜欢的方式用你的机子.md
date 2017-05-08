@@ -46,4 +46,4 @@ it deserves me(🐻). cuz i am a bear with nice physique, cute face, good temper
 
 i deserves it(🎁). cuz i have worked hard
 
-[值得](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-两性-值得.md)
+[值得](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/small/值得.md)
