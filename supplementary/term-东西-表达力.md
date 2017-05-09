@@ -51,6 +51,10 @@ gad 或许我应该培养一项 深刻的爱好(而不是泛泛之爱-只要是�
 
 我想我一定会喜欢并依附、爱上、掌握 “一种有表达力” 的方式，来 qualify 我自己 对于表达力的渴望
 
+= = = 脑容量回收站 = = =
+
+好的[服务](https://github.com/7900ms/000nottheater_deserted_forfindingmore/blob/master/self-doitasService)需要好的表达力
+
 -
 
 
