@@ -21,6 +21,7 @@
 情绪转化得慢(尤其坏情绪)
 情绪一直 haunting me, 心事重重
 情绪转化得慢，还自以为对
+情绪转化得慢(尤其没见过市面的)
 情绪去的快 来的快，还以为是错
 ```
 
@@ -39,5 +40,7 @@
 
 很多键盘侠其实狗屁不懂，什么都说不出所以然，但是遇事总是喜欢“谈谈自己的看法 -- 你庸人自扰,还要我也跟着自扰麽？
 [--为什么知乎有那么多如何评价xx的问题但quora没有--](https://www.zhihu.com/question/27153742)
+
+[没见过市面的](https://github.com/7900ms/notinternet_deserted/blob/master/small/playlist/4看热闹.md)
 
 -
