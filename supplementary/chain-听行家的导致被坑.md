@@ -14,3 +14,5 @@
 “不关注，不了解，不评价，不购买” (不使用，不填堵)
 
 -
+
+行家本身就是没有[情绪](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small),甚至故意[句句带刺(自由发言)],个人性格就是爱讽刺
