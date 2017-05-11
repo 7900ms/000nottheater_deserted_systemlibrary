@@ -8,7 +8,7 @@
 行家圈本来就是小众人 -> 一个人一定会说喜欢那个行家圈 -> 不会被行家们提出圈子 -> 可以沾染行家的感觉 -> 也会变成一个行家 -> 会主动维护行家们 -> 行家本来就少 更会团结起来 -> 大家一起维护行家圈的 -> 给人推荐越不实用的软件,他是意识不到的，反而眼睛都不带眨巴的 -> 小众人会吸纳的人越来越多 -> 小众人的飞扬跋扈脾气会越来越大 -> 很多人在一起干什么鸟事兜售都是非常合理的 -> 行家圈会越来越坑人 (而且他们真的在take it [seriously](https://twitter.com/kourtneykardash/status/858896451803336705)自己都[承认的](https://twitter.com/opera/status/856419413041573888), [甚至忘了自己姓啥了](https://twitter.com/CuteAnimalsPIX/status/860928576287383554))
 
 
-他们当然会鼓励你啦，从正面 鼓励你加入他们，从侧面 打压你 激发你向他们的挑战心 -- 最终还是听他们的，跟他们处。他们的确是对‘获得更高地位’[感兴趣的](http://blog.donews.com/keso/) 也的确有团体 ———— 而且只顾着自己的团体(习性太明显,他们自己是意识不到的)。不是我瞎掰，他们真的在鼓励，我也真的不能听。[我真的看出来了](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/small) , 而且我没忘了[自己姓啥](https://twitter.com/CuteAnimalsPIX/status/860928576287383554)
+他们当然会鼓励你啦，从正面 鼓励你加入他们，从侧面 打压你 激发你向他们的挑战心 -- 最终还是听他们的，跟他们处。他们的确是对‘获得更高地位’[感兴趣的](http://blog.donews.com/keso/) 也的确有团体 ———— 而且只顾着自己的团体(习性太明显,他们自己是意识不到的)。不是我瞎掰，他们真的在鼓励，我也真的不能听。[我真的看出来了](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/small) , 而且我没忘了[自己姓啥](https://twitter.com/CuteAnimalsPIX/status/860928576287383554) 就小老百姓装啥呀
 
 
 “不关注，不了解，不评价，不购买” (不使用，不填堵)
