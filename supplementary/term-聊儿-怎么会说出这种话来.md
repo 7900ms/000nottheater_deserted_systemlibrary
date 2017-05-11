@@ -11,6 +11,7 @@
 
 (introvert: 这帮人[转换心情的速度太慢..还自以为是](https://twitter.com/sryimnate/status/861599476074545153))
 
+转化的[快](https://twitter.com/kourtneykardash/status/858896451803336705)啊 都这样,难道要 SO Serious
 
 排序 看有没有兴致：
 ```
