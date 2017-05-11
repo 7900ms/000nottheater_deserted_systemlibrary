@@ -9,6 +9,8 @@ fully 观察之后 行动 -> 有心情观察 -> (稍等下,让我调整一下情
 
 [稍等下 让我调整一下情绪](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊句-不要看我(稍等下%2C让我调整一下情绪).md)
 
+怎么有起来好情绪：自己调整、被鼓励(在好情绪/被鼓励的情况下可以做成任何事)
+
 [看有没有兴致去行动 ( 心安理得程度 )](https://www.v2ex.com/notes/28139)
 
 ```
