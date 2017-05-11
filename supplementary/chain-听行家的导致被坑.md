@@ -1,5 +1,5 @@
 
-听一个行家的反而会被坑，为什么？ 一定要防着[残酷性](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small)
+听一个行家的反而会被坑，为什么？ 那是有[残酷性](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small)的地方，躲远点儿为好
 
 听大众的 -> 大家用什么就用什么 -> 基本不用担心 -> 用自己喜欢的方式用自己的机子 -> 根本不用坚持任何原则(或投入私人感情),大家用啥我用啥,很实在 -> 最初目的达到了,好心情 -> 跟大家在同样的位置，不差
 
