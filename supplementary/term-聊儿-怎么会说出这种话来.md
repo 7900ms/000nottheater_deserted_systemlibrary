@@ -43,4 +43,6 @@
 
 [没见过市面的](https://github.com/7900ms/notinternet_deserted/blob/master/small/playlist/4看热闹.md)
 
+青春期的青春期学生就喜欢整这种玩艺(至少情绪转化得[快](https://bbs.hupu.com/15729322.html))
+
 -
