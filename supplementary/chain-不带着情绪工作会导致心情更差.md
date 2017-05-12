@@ -37,6 +37,11 @@ fully 观察大众，不爱观察
 确信的行动
 (有心情的行动 -> 观察力下的行动)
 
+= = =
 
+带着情绪工作，而且[情绪变得快(很快转到好情绪)](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊儿-怎么会说出这种话来.md) 是好
+
+```
+```
 
 -
