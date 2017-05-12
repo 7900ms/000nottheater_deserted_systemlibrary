@@ -18,3 +18,10 @@ chain-没编辑的(没有作者群)瞎搞会导致瞎搞得愈演愈烈
 [---](https://github.com/7900ms/000nottheater_deserted_systemthunder/tree/master/slow/on-article-paid-by-quality-not-ad)
 
 文章稿酬标准: 千字/100元。就看编辑能不能要你这个稿子：要了就是这么多钱
+
+
+= = =
+
+我为什么不接受 "免费" 一书中的免费赚钱方式：因为它依赖于交叉补贴 -> 很大规模的用户。大规模的好东西，比如 书 电影 健身 口琴，太少了，喜欢这些东西的人也太少了，而且这些羊根本没有消费力 [----](https://book.douban.com/review/6387396/)
+
+-
