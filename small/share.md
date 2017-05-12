@@ -32,5 +32,5 @@ share 价值观，具体行动依赖
 
 [share](https://twitter.com/earthvid/status/862910323254337536)
 
-[share 价值观，但具体行动不依赖](https://github.com/7900ms/000nottheater_deserted_systemthunder/tree/master/slow/on-stupid-rich-cmon)
+[share 价值观，但具体行动不依赖。因为仅能保证的是具体问题具体分析-脑力集中快速分析不慌-然后做‘最好的事’](https://github.com/7900ms/000nottheater_deserted_systemthunder/tree/master/slow/on-stupid-rich-cmon)
 
