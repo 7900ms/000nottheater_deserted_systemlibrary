@@ -13,3 +13,6 @@
 而不在此时此刻的东西，都放在大仓库里，以备取用
 
 -
+
+[鼓励他人的艺术](https://github.com/7900ms/000nottheater_deserted_systemperformance/tree/master/supplementary)
+
