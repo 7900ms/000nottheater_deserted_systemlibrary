@@ -57,4 +57,10 @@ chain-morning-call.md
 
 每个人不同的兴趣爱好和生活态度哟，我的还不错哈，而且很简单啊，哈哈！
 
+
+
+> im feeling like im losing myself, am not i ? 
+> like "don't know what im doing, or whether or not should i keep doing it"
+> if u lose urself, it is a low-quality of morning-call
+
 -
