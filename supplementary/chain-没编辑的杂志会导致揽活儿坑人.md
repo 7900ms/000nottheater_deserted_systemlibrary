@@ -17,7 +17,9 @@ chain-没编辑的(没有作者群)瞎搞会导致瞎搞得愈演愈烈
 
 [---](https://github.com/7900ms/000nottheater_deserted_systemthunder/tree/master/slow/on-article-paid-by-quality-not-ad)
 
-文章稿酬标准: 千字/100元。就看编辑能不能要你这个稿子：要了就是这么多钱
+文章稿酬标准: 千字/100元。就看编辑能不能要你这个稿子：要了就是这么多钱。
+
+杂志质量：杂志作者群 越大越有名，杂志越好
 
 
 = = =
