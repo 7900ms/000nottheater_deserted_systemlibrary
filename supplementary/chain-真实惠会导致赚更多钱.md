@@ -21,6 +21,6 @@
 
 
 给人真实惠：
-基本上所有[靠 大规模 赚钱](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-没编辑的杂志会导致揽活儿坑人.md)的办法都否定了
+基本上所有[靠 大规模/虚价 赚钱](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-没编辑的杂志会导致揽活儿坑人.md)的办法都否定了
 
 -
