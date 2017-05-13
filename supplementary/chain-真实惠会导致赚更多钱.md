@@ -18,3 +18,9 @@
   [---](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-不带着情绪工作会导致心情更差.md)
 心情转化得快，更跟得上时代
 ```
+
+
+给人真实惠：
+基本上所有[靠 大规模 赚钱](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-没编辑的杂志会导致揽活儿坑人.md)的办法都否定了
+
+-
