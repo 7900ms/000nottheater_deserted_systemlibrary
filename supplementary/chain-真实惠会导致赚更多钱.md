@@ -7,7 +7,7 @@
 ```
 
 赚大钱的理由(不矫情)：<br>
-i can [afford](http://whisper.sh/whisper/054f2b0ec135d56ba69e2e49746e9b7ccdfff8#search?q=summer+bikini) my bills (living expense)
+i can [afford](http://whisper.sh/whisper/054f2b0ec135d56ba69e2e49746e9b7ccdfff8#search?q=summer+bikini) my bills (living expense covered, for the [1st](http://whisper.sh/whisper/054f08d1017b72d690c708f7ee1796a8215fbd) time )
 ```
 给人 真实惠
 男的 大男子主义，不接受女的比自己赚的钱多
