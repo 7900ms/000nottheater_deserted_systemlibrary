@@ -48,6 +48,6 @@ She saw herself more a European sould, in tune with the thinkers and artists she
 
 why u ? why u Emma Watson ?
 
-🐻 cuz im worth it [--](https://twitter.com/LostAtHogwarts/status/839919932716437504#Sassy since day one)
+🐻 cuz im worth it [--](https://twitter.com/LostAtHogwarts/status/839919932716437504#Sassysincedayone)
 
 -
