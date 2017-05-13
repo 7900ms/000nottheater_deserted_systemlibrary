@@ -17,6 +17,7 @@
 心情转化的快，更见过世面 而不是 stuck 住 心情转化的慢 [--](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊儿-怎么会说出这种话来.md) 
   [---](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-不带着情绪工作会导致心情更差.md)
 心情转化得快，更跟得上时代
+敢于恋爱，纵使情敌很多，不怕被针对，因为我有钱就有底气
 ```
 
 
