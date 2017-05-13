@@ -59,7 +59,7 @@ chain-morning-call.md
 
 
 
-> im feeling like im losing myself, am not i ? 
+> im feeling like im losing myself (aka self-esteem) , am not i ? 
 > like "don't know what im doing, or whether or not should i keep doing it"
 > if u lose urself, it is a low-quality of morning-call
 
