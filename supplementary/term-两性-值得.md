@@ -44,4 +44,10 @@ She saw herself more a European sould, in tune with the thinkers and artists she
 
 找人、找到巴塞罗那 也算某种寻找同类
 
+= = = 脑容量回收站 = = =
+
+why u ? why u Emma Watson ?
+
+🐻 cuz im worth it [--](https://twitter.com/LostAtHogwarts/status/839919932716437504#Sassy since day one)
+
 -
