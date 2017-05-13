@@ -13,4 +13,5 @@
 男的 doggie style
 男的 钱是人的胆，她什么都敢干[--](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/slang-不知以后是否还有机会再这样聊天(欢乐颂).md)
 有本事的当老板，没本事的摆小摊，不三不四去上班
+心情转化的快，更见过世面 而不是 stuck 住 心情转化的慢 [--](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊儿-怎么会说出这种话来.md)
 ```
