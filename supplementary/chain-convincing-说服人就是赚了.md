@@ -1,4 +1,6 @@
 
+<sub>一个新建政党怎么立足？得到大财团的支持。大媒体商，没有立场 立场不明 不是新政党，但它们有钱。如果能说服它们 暂时归到它们麾下，同时继续保持自己学术特性一般的独立性，那么就是说服了它们，就能[继续办事](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small)了</sub>
+
 chain-convincing-说服人就是赚了
 
 ```
