@@ -63,4 +63,14 @@ chain-separating-隔离导致更好的隔离
 
 [太 seriously 在于，把它 放在 跟自己一样的位置上了 -- 就开始怕它了, 被它咬了](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-听行家的导致被坑.md)
 
+```
+在真实中寻找真实
+被真实世界给咬了
+先确认:它是真实的
+不确认:它是不是真实的
+在虚拟中寻找真实 ✗
+在虚拟中寻找虚拟的快感
+没法面对真实的自己
+被虚拟世界给咬了
+```
 
