@@ -48,6 +48,8 @@ chain-separating-隔离导致更好的隔离
 
 没有网友，没有[动物](https://www.douban.com/group/mindfucking/)[园(论坛)](http://www.weibo.com/1634431184/F23nns0gE)，[仅仅是有公司的互相炒作、商战：无所不用其极 抬杠,广告,自说自话的高级广告](https://github.com/7900ms/theater_deserted/blob/master/ACDSee的故事.md)
 
+没有感情，没有感情卷入 (赞美 鞭挞 攀比)
+
 没有唇枪舌战、飞机大炮：只有自己的被窝 和 第二天的清晨<br><br>
 ![](http://i.imgur.com/TcgqnIB.jpg)
 
