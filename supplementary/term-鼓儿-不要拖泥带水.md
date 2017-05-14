@@ -1,5 +1,5 @@
 
-When you solve a math problem correctly on the first try ( 一次过！不是每个人都能一次过的，争取一次过。不要拖泥又带水，不要冷漠又狼狈 ) - Gavin Reactions
+When you solve a math problem correctly on the first try ( 一次过！不是每个人都能一次过的，争取一次过。不要拖泥又带水，不要冷漠又狼狈 ) - [Gavin Reactions](https://www.v2ex.com/notes/28139)
 
 = = =
 
