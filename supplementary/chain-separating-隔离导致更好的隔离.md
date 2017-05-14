@@ -44,7 +44,7 @@ chain-separating-隔离导致更好的隔离
 
 没有行家：[仅仅是网文](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-听行家的导致被坑.md)
 
-没有真实的人，[除了那个真的杂志社开的线上版本](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-没编辑的杂志会导致揽活儿坑人.md) 、真的作家开的[博客](http://blog.sina.com.cn/qijinnian105) 、[weibo](http://weibo.com/u/1634431184)
+没有真实的人，[除了那个真的杂志社开的线上版本](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-没编辑的杂志会导致揽活儿坑人.md) 、真的作家开的[博客](http://blog.sina.com.cn/qijinnian105) 、[weibo](http://weibo.com/u/1634431184)、真的学校开的网络课程
 
 没有网友，没有[动物](https://www.douban.com/group/mindfucking/)[园(论坛)](http://www.weibo.com/1634431184/F23nns0gE)，[仅仅是有公司的互相炒作、商战：无所不用其极 抬杠,广告,自说自话的高级广告](https://github.com/7900ms/theater_deserted/blob/master/ACDSee的故事.md)
 
