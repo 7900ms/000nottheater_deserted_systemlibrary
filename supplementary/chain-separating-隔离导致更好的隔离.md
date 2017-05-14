@@ -40,6 +40,8 @@ chain-separating-隔离导致更好的隔离
 
 [民用系统的防污染](https://github.com/7900ms/00nottheater_deserted/blob/master/small/系统分划and防系统污染.md)
 
+网上一定是和真实生活分离的，一定是 匿名信息
+
 = = =
 
 定义是不重要的，感觉是重要的 (位置感)：谁影响了谁，谁在上风 谁在下，谁控制谁：人单向看电影,电影被看 (人不用怕电影, 电影不会咬人)
