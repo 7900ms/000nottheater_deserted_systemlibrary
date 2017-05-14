@@ -46,6 +46,8 @@ chain-separating-隔离导致更好的隔离
 
 没有真实的人，[除了那个杂志社开的线上版本](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-没编辑的杂志会导致揽活儿坑人.md)
 
+没有网友，[仅仅是有公司的互相炒作、商战](https://github.com/7900ms/theater_deserted/blob/master/ACDSee的故事.md)
+
 = = =
 
 定义是不重要的，感觉是重要的 (位置感)：谁影响了谁，谁在上风 谁在下，谁控制谁：人单向看电影,电影被看 (人不用怕电影, 电影不会咬人)
