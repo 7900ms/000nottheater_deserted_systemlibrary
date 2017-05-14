@@ -28,6 +28,6 @@ i can [afford](http://whisper.sh/whisper/054f2b0ec135d56ba69e2e49746e9b7ccdfff8#
 
 
 给人真实惠：
-基本上所有[靠 大规模/虚价 赚钱](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-没编辑的杂志会导致揽活儿坑人.md)的办法都否定了
+基本上所有[靠 大规模/虚价 赚钱](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-没编辑的杂志会导致揽活儿坑人.md)的办法都否定了，不是[真的作家而是起点中文网的作家](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-separating-隔离导致更好的隔离.md)就否定了
 
 -
