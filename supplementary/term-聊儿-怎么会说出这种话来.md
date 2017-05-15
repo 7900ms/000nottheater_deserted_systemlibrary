@@ -37,7 +37,7 @@
 
 奶茶妹妹章泽天清华学神前男友上节目被高晓松痛批：境界太低，丢了清华的人
 
-(我当然是100%对的，你怎么会说出这种话来？ 你还说我“执迷不悟 知错不改” 我坚决地没错啊 --这是你自己的问题 你简直无理取闹。我很正义的 身正的呢,**就是正** 。我正，i got 100% faith in myself. 你再惹我[我看你是找抽了](https://twitter.com/fillinthablankk/status/863882739472379904) [imTooOldForUrBullshit](https://twitter.com/GAVlNREACT/status/860971435011039232) <sub>我大概不可能主动理解你，向前走吧，不主动折损了我自己</sub>)
+(我当然是100%对的，你怎么会说出这种话来？ 你还说我“执迷不悟 知错不改” 我坚决地没错啊 --这是你自己的问题 你简直无理取闹。我很正义的 身正的呢,**就是正** 。我正，i got 100% faith in myself. 你再惹我[我看你是找抽了](https://twitter.com/fillinthablankk/status/863882739472379904) [imTooOldForUrBullshit](https://twitter.com/GAVlNREACT/status/860971435011039232) <sub>我大概不可能主动理解你，向前走吧，不主动折损了我自己[--](https://ruby-china.org/notes/4052#这样不那样.log)</sub>)
 
 = = = 脑容量回收站 = = =
 
