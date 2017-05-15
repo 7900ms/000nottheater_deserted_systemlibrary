@@ -51,7 +51,7 @@
 -
 
 oh cmon whats wrong with u?
-净说一些我做不到的事，还不教我做、也不鼓励我？ (你怎么会说出这种话来 / 瞧把你能耐的! / hater is goona [hate](https://www.v2ex.com/t/361328#reply15) )
+净说一些我做不到的事，还不教我做、也不鼓励我？ (你怎么会说出这种话来 / 瞧把你能耐的! / [hater](https://www.v2ex.com/t/361328#reply15) is goona hate )
 `教我做 > 鼓励我 > 平静我 > 烦我`
 
 -
