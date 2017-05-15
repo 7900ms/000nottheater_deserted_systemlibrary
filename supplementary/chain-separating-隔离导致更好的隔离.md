@@ -74,7 +74,8 @@ chain-separating-隔离导致更好的隔离
 被虚拟世界给咬了
 ```
 
+<sub>
 如果不隔离：
 如果在虚拟世界里寻找真实，那么怎么面对真实的自己
 [--](https://github.com/7900ms/notinternet_deserted/tree/master/book)
-
+</sub>
