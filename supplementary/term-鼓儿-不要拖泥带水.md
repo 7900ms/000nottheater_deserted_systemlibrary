@@ -20,3 +20,5 @@ When you solve a math problem correctly on the first try ( 一次过！不是每
 
 
 -
+
+[这样不那样.log](https://ruby-china.org/notes/4052#这样不那样.log)
