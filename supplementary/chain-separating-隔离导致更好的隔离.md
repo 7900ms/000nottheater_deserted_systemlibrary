@@ -75,7 +75,7 @@ chain-separating-隔离导致更好的隔离
 ```
 
 <sub>
-争取一次过。<a link=https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-鼓儿-不要拖泥带水.md>一次过</a>。不要拖泥又带水，如果不隔离：
+争取一次过。<a href="https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-鼓儿-不要拖泥带水.md">一次过</a>。不要拖泥又带水，如果不隔离：
 如果在虚拟世界里寻找真实，那么怎么面对真实的自己
 [--](https://github.com/7900ms/notinternet_deserted/tree/master/book)
 </sub>
