@@ -95,5 +95,5 @@ eg3
 
 [由头-赚钱不用谢别人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small) [不变的](https://www.v2ex.com/notes/28139)
 
-[自由世界里 更讲由头，躲开每个岔路](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-近朱者赤.md)，[不喜欢的 就躲开咯](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md)
+[自由世界里 更讲由头，躲开每个岔路](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-近朱者赤.md)，自由行动 不要鸡兔同笼 - 不喜欢的 [就躲开咯](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md)
 
