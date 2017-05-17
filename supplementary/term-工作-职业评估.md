@@ -1,6 +1,6 @@
 
 基于[真实惠-赚钱](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small)的由头。<br>
-由头之下的 做法 [随便,根据限制条件看(先)做哪个](https://ruby-china.org/notes/4055)，[(先)做哪个](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md)。职业/主业 是在 由头之下的 做法。
+由头之下的 做法 [随便,根据限制条件](https://ruby-china.org/notes/4055)，[(先)做哪个](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md)。职业/主业 是在 由头之下的 做法。
 
 总的由头是不变的，不同阶段 由头是[可变的，可以看现有条件下先做那个](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md) / 职业是可变的。
 
