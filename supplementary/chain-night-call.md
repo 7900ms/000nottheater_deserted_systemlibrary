@@ -91,7 +91,7 @@ eg3
 
 [各阶段由头，由头-寻开心，有新的由头 由头-看宫崎骏电影](#本页)
 
-[由头的不变，由头-寻开心，根据客观条件限制 做事](https://ruby-china.org/notes/4055)
+[由头的不变，由头-寻开心，根据客观条件限制 (先)做某事](https://ruby-china.org/notes/4055)
 
 [由头-赚钱不用谢别人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small) [不变的](https://www.v2ex.com/notes/28139)
 
