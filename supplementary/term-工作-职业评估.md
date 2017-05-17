@@ -4,9 +4,10 @@
 
 总的由头是不变的，不同阶段 由头是[可变的，可以看现有条件下先做那个](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md)<br>
 
+<sub>
 为了 过一个 “很好的” 账单付清 ( 所以去计划找到一个好工作先 )<br>
 不是为了这个工作 本身<br>
-( 条件限制，选择了 毕业找工作的时机，也不错啊，那就推进作找工作计划吧 )<br>
+( 条件限制，选择了 毕业没教师去了的时机，也不错啊，那就推进作找办公室工位的计划吧 )</sub><br>
 
 找工作的性质之一就是互相挑选+择优竞争，以下是备忘
 
