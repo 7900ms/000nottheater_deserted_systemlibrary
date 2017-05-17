@@ -1,4 +1,16 @@
 
+基于[真实惠-赚钱](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small)的由头，职业/主业 是在 由头之下的 做法。总的由头是不变的，不同阶段的由头是[可变的](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md) / 职业是可变的。
+
+```
+职业认识：躲开旧的职业认识
+通常，职业只能带给你钱，而且能带给你钱的办法，不只是主业一种
+躲开那种“职业至上”的人，职业能给我带来一切(我是某某厂员工所以人们就该怎么对我)的看法的人
+躲开那种“某某职业的爱情观、某某职业的婚姻观”的人，太弱了
+主业 就是 在弄钱来的由头下，一种方式 of 长久常稳弄钱的办法
+```
+
+( [自由世界](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md)就是能躲开的世界 )
+
 ```
 心情调整：
 小孩子太笨了，太没有防范心了，我肯定会调查来的每个人的底细，不会轻易相信他们
