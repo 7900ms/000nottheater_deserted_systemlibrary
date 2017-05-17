@@ -30,7 +30,7 @@
 <br><br><br><br>
 
 我觉得
-- 人们认为18岁以下的人是小P孩，我不接受18岁以下的人的建议
+- 人们认为18岁以下的人是小P孩，我不接受18岁以下的人的建议 (我觉得一个人特别幼稚，我就可以躲避ta的建议)
 - 人是认业务的，我也是[认业务的](https://github.com/7900ms/000nottheater_deserted_forfindingmore/tree/master/tech-translation)(所以我就躲开不和业务沾边的)
 - 不成熟的行业不会有很多人喜欢，我也是躲开不成熟的行业
 
