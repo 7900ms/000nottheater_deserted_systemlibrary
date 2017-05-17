@@ -21,6 +21,8 @@
 主业 就是 在弄钱来的由头下，一种方式 of 长久常稳弄钱的办法
 ```
 
+[躲开旧的职业认识](https://www.v2ex.com/notes/28139)
+
 ### 备忘录2
 
 ( [自由世界](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md)就是能躲开的世界。 <sub>而且 如果想要和人们 share 价值观，直接 share 就可以了。人们看你有钱就OK，不会在乎你的钱是哪里来的(什么职业挣来的--谁关心你是干嘛的呢，只要你给他们买包包。怎么弄钱是自己的事) </sub> )
