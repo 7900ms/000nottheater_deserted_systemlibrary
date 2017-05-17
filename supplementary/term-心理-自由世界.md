@@ -1,5 +1,8 @@
 
 自由世界
+
+[自由世界](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-近朱者赤.md)的意义在于：能躲开很多人，去找到自己的骑士团和“盛宴”
+
 ```
 我今天突然在思考自由世界的意义究竟是什么
 如果自由世界需要强迫人与人互相包容 希望鸡兔同笼而不打架，那么和封闭世界有什么区别呢？
