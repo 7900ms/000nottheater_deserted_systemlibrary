@@ -25,3 +25,9 @@
 - 工作上岗执照 (发证后才能上岗)
 - 工作年限执照 (年限到了给发证)
 - 一级建筑师 注册建筑师 认证 (考取的认证,考试卡人) [--](http://ww2.flyabroadvisa.com/ass/acs.html)
+
+
+-
+
+我觉得
+- 人是认业务的，我也是[认业务的](https://github.com/7900ms/000nottheater_deserted_forfindingmore/tree/master/tech-translation)(所以我就躲开不和业务沾边的)
