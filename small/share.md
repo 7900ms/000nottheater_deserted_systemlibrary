@@ -40,7 +40,7 @@ share 价值观，具体行动依赖
 = = =
 
 share对于自由世界的由头的喜欢：
-自由世界，不在于包容和理解(非自由世界里是鸡兔同笼 逼迫自己和最恶心的人共处)，在于可以随时离开(自由世界里是我不爽可以离开 去找我的好样子)。
+自由世界，不在于包容和理解(非自由世界里是鸡兔同笼 逼迫自己和最恶心的人共处)，在于想躲开谁就躲开谁(自由世界里是我不爽可以离开 去找我的好样子)。<br>
 [自由世界](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-近朱者赤.md)在于没人逼着你去亲近坏样子,可以躲开坏样子。在非自由世界里，大家都是一个(坏)样；在自由世界里，我要去找我的骑士团,我的好样子(否则就辜负了自由世界) —— 看谁笑到最后。自由世界在于能(在任何时间地点,只要你想就可以)躲开很多人
 随你[心情变化由头窄化](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md)，想躲开谁就躲开谁
 
