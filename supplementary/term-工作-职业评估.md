@@ -1,8 +1,12 @@
 
 基于[真实惠-赚钱](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small)的由头。<br>
-由头之下的 做法 [随便,根据限制条件](https://ruby-china.org/notes/4055)，[(先)做哪个](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md)。职业/主业 是在 由头之下的 做法。
+由头之下的 做法 [随便,根据限制条件](https://ruby-china.org/notes/4055)，[(先)做哪个](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md)。职业/主业 是在 由头之下的 做法，限制条件就是毕业该找工作了，那就(先)找工作岗位咯。
 
-总的由头是不变的，不同阶段 由头是[可变的，可以看现有条件下先做那个](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md) / 职业是可变的。
+总的由头是不变的，不同阶段 由头是[可变的，可以看现有条件下先做那个](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md)<br>
+
+为了 过一个 “很好的” 账单付清 ( 所以去计划找到一个好工作先 )<br>
+不是为了这个工作 本身<br>
+( 条件限制，选择了 毕业找工作的时机，也不错啊，那就推进作找工作计划吧 )<br>
 
 ### 备忘录1
 
