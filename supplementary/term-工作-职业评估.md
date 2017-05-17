@@ -27,7 +27,7 @@
 - 一级建筑师 注册建筑师 认证 (考取的认证,考试卡人) [--](http://ww2.flyabroadvisa.com/ass/acs.html)
 
 
--
+<br><br><br><br>
 
 我觉得
 - 人是认业务的，我也是[认业务的](https://github.com/7900ms/000nottheater_deserted_forfindingmore/tree/master/tech-translation)(所以我就躲开不和业务沾边的)
