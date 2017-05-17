@@ -97,3 +97,6 @@ eg3
 
 [自由世界里 更讲躲开每个岔路 (非自由世界里躲不开的)](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-近朱者赤.md)，人是可以自由行动的 鸡兔同笼只在非自由世界 若不想鸡兔同笼 - 不喜欢的 [就躲开咯](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md)
 
+[由头-真实惠](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-真实惠会导致赚更多钱.md) ，人是可以自由行动的 [任何劳动都可以](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-工作-职业评估.md) 不需要[卡职业-被工作定义的人](https://www.v2ex.com/notes/28139)
+
+
