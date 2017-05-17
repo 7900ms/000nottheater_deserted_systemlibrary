@@ -1,5 +1,8 @@
 
-基于[真实惠-赚钱](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small)的由头，职业/主业 是在 由头之下的 做法。总的由头是不变的，不同阶段的由头是[可变的](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md) / 职业是可变的。
+基于[真实惠-赚钱](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small)的由头。<br>
+由头之下的 做法 随便。职业/主业 是在 由头之下的 做法。总的由头是不变的，不同阶段的由头是[可变的](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md) / 职业是可变的。
+
+### 备忘录1
 
 ```
 职业认识：躲开旧的职业认识
@@ -9,7 +12,21 @@
 主业 就是 在弄钱来的由头下，一种方式 of 长久常稳弄钱的办法
 ```
 
+### 备忘录2
+
 ( [自由世界](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md)就是能躲开的世界。 <sub>而且 如果想要和人们 share 价值观，直接 share 就可以了。人们看你有钱就OK，不会在乎你的钱是哪里来的(什么职业挣来的--谁关心你是干嘛的呢，只要你给他们买包包。怎么弄钱是自己的事) </sub> )
+
+```
+看有没有兴致 排序 (在真实生活里)：
+不需要被工作定义也能能轻松做好工作的人 (个人素质的帮助，爱情 学业 霸业,做难的事 寻找同类/服务人 寻找自己/服务自己)
+不需要被工作定义也能做好的人
+不被工作定义的人
+被工作定义的人
+需要让工作定义自己才能把工作做好的人
+就是爱被工作岗位定义的人 ( 生命太空虚了,没有挑的盛宴 ) (小孩子,躲开)
+```
+
+### 备忘录3
 
 ```
 心情调整：
@@ -53,5 +70,8 @@
 - 小孩子太笨了，太没有防范心了，我肯定会调查来的每个人的底细，不会轻易相信他们
 - 人是认业务的，我也是[认业务的](https://github.com/7900ms/000nottheater_deserted_forfindingmore/tree/master/tech-translation)(所以我就躲开不和业务沾边的)
 - 不成熟的行业不会有很多人喜欢，我也是躲开不成熟的行业
+
+
+
 
 
