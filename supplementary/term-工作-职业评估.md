@@ -5,9 +5,9 @@
 总的由头是不变的，不同阶段 由头是[可变的，可以看现有条件下先做那个](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md)<br>
 
 <sub>
-为了 过一个 “很好的” 账单付清 ( 所以去计划找到一个好工作先 )<br>
+*为了 过一个 “很好的” 账单付清 ( 所以去计划找到一个好工作先 )<br>
 不是为了这个工作 本身<br>
-( 条件限制，选择了 毕业后没教室座位去了 的时机，也不错啊，那就推进作 找办公室工位 的计划吧 )</sub><br><br><br>
+( 条件限制，选择了 毕业后没教室座位去了 的时机，也不错啊，那就推进作 找办公室工位 的计划吧 )*</sub><br><br><br>
 
 -
 
