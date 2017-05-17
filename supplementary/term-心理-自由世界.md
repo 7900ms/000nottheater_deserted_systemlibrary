@@ -10,3 +10,7 @@
 在任何默认方面 的 自由行动，也可开启新方面 的 自由行动
 
 (我的默认方面 很少，开新方面 可开可关 自由把控)
+
+-
+
+[乃怎么说出这种话来](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊儿-怎么会说出这种话来.md) [乃对我的指责根本TMD毫无意义，我讨厌你 我就要躲开你](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-separating-隔离导致更好的隔离.md)
