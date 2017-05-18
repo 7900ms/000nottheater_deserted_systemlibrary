@@ -32,7 +32,7 @@ chain-separating-隔离导致更好的隔离
 网上的狗文 咬人文
 ```
 
-
+休息的由头在于，让人精力十足的，回到真实世界 [虚拟世界的意义 在于 回到真实世界精力十足](https://github.com/7900ms/notinternet_deserted/tree/master/book)
 
 = = =
 
