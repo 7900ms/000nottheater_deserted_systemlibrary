@@ -36,7 +36,7 @@ term-genre-侦探游记
 
 
 
-土耳其作家
+全世界最细腻的旅行作家之一[皮柯·耶尔（Pico Iyer）](http://www.bbc.com/ukchina/simp/vert-tra-38691178)
 
 送给人中国扇子
 
