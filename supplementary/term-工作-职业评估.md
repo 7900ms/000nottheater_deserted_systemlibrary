@@ -82,7 +82,7 @@
 - 工作上岗执照 (发证后才能上岗)
 - 工作年限执照 (年限到了给发证)
 - 一级建筑师 注册建筑师 认证 (考取的认证,考试卡人) [--](http://ww2.flyabroadvisa.com/ass/acs.html)
-
+- 同行评价(SAP) [--](https://www.zhihu.com/question/19849366#埃森哲是一家怎样的公司？能撸上SAP算你好运)
 
 <br><br><br><br>
 
