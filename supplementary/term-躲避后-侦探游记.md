@@ -35,7 +35,7 @@ term-genre-侦探游记
 
 ```
 
-`无论干啥，都是我选的名家名品 那就可以 stick to it `
+`无论干啥，都是我选的名家名品(而不是阿猫阿狗选的言情小说宫斗剧) 那就可以 stick to it `
 
 
 全世界最细腻的旅行作家之一[皮柯·耶尔（Pico Iyer）](http://www.bbc.com/ukchina/simp/vert-tra-38691178)
