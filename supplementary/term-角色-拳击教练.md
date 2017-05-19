@@ -5,5 +5,8 @@
 
 然后见面之后 一起打拳击 [--](https://youtu.be/k3_QFRMCV4c?t=33m15s)
 
+-
+
+就是讲义气，不需要什么文诌诌的词语“双重标准”来约束 [--](https://www.douban.com/group/topic/86244785/)
 
 -
