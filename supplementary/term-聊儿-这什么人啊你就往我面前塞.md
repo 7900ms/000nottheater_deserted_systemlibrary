@@ -7,7 +7,7 @@ term-聊儿-这什么人啊你就往我面前塞 - [youtube 欢乐颂S2E13](http
 > - 能挣钱但是不看重钱
 > - 不看重钱
 > - [知道可以挣钱](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small#由头-真实惠)，也能[轻松把钱挣](https://www.v2ex.com/notes/28139#不需要被工作定义也能能轻松做好工作的人)了 [--](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-工作-职业评估.md#由头-真实惠+对的限制条件+(先)做对应的事)
-> - 知道该挣钱 [有更高追求](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-近朱者赤.md)
+> - 知道仨瓜俩枣的该有 也[有更高追求](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-近朱者赤.md)
 
 这样什么用都起不到。
 你应该直接跟你爸妈说，一个字“狠” ，不要怕他们生气、更不应该在关键时刻黏黏糊糊
