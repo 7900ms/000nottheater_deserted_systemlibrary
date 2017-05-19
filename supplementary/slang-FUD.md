@@ -9,6 +9,8 @@
 > 会有一种释然的心情
 >
 
+> 至少我没把时间放在那些无聊的游戏上，我已经是赚了 (自由世界里躲开了那些无聊的游戏)
+
 FUD
 
 小圈子很好 小圈子([拳击教练保护圈里人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-角色-拳击教练.md))：就是讲义气 讲[小圈子](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md) [小圈子可以](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-何以融入何处融入.md)
