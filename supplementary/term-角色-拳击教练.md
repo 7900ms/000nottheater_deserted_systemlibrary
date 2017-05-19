@@ -36,7 +36,7 @@
 - [chain-何以融入何处融入](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-何以融入何处融入.md)
 - 会说，会让人感觉到“[狠](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊儿-这什么人啊你就往我面前塞.md#一个字“狠”)”
 - 会做，不上当，有真实惠，有[角色-拳击教练](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-角色-拳击教练.md)
-- [基础心情](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-不带着情绪工作会导致心情更差.md) [基础隔离](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-separating-隔离导致更好的隔离.md) [基础正常人的由头](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md)
+- [基础心情](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-不带着情绪工作会导致心情更差.md) [基础隔离](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-separating-隔离导致更好的隔离.md) [基础正常人的由头和(先)做某事](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md)
 
 我可以去做
 - 别人看的东西我不需要
