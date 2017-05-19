@@ -1,9 +1,10 @@
 
 >
-> 对付 FUD 最简单了，甚至用不到几大原则：<br>
+> 对付 FUD 最简单了，甚至用不到几大原则和服务于人：<br>
 > 收回对一切人的一切尊重<br>
 > 反侦察能力<br>
-> 承认傻子确实可能上当,是他们自己的事,我顾好自己就行了
+> 承认傻子确实可能上当或被“忽悠”, 是他们自己的事,我顾好自己就行了
+> 忽悠,接着忽悠 - 人人都有警惕心
 >
 
 FUD
@@ -14,7 +15,7 @@ FUD
 
 反侦察：
 - [term-聊儿-怎么会说出这种话来](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊儿-怎么会说出这种话来.md)
-- [term-聊儿-这什么人啊你就忘我面前塞](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊儿-这什么人啊你就忘我面前塞.md)
+- [term-聊儿-这什么人啊你就往我面前塞](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊儿-这什么人啊你就往我面前塞.md)
 
 一个字 狠
 
