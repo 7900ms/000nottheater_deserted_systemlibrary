@@ -7,6 +7,6 @@
 
 -
 
-就是讲义气 讲[小圈子](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md) [小圈子可以](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-何以融入何处融入.md)，不需要什么文诌诌的词语“双重标准”来约束 [--](https://www.douban.com/group/topic/86244785/#G-谢斌-欢乐颂)
+就是讲义气 讲[小圈子](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md) [小圈子可以](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-何以融入何处融入.md)，不需要什么文诌诌的词语“双重标准”来约束 [--](https://www.douban.com/group/topic/86244785/#G-谢斌-欢乐颂) 乃怎么会说出这种话来
 
 -
