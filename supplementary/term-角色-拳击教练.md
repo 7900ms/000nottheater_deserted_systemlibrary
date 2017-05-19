@@ -19,3 +19,5 @@
 双重标准是骂人的么？-[怎么会说出这种话来](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊儿-怎么会说出这种话来.md),太可悲了
 
 人家为什么对你这么说(说出双重标准云云)呢？[忽悠傻子呢呗](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/slang-FUD.md)
+- 先让你对一切人一切尊重
+- 然后就可以忽悠你
