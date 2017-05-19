@@ -43,7 +43,7 @@
 - 我不怕寂寞，我有要看的东西 [躲避后](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/supplementary)
 - 我保持好状态，[可以看人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-何以融入何处融入.md): 否定人、肯定人
 - 再错怎样？不就是认错了人嘛，下回 提高判断力 记住长记性就行了
-- 别在给人忽悠了，没事的。记住了，下回扭头走就行了,省得耽误大家工夫了
+- 别在给人忽悠了，没事的。记住了，下回见人扭头走就行了,省得耽误大家工夫了
 - (伤人的是人，解决好人就可以。甚至调查背景的也是人,调查人的背景)
 - 自由世界在于自由行动 [对错的人 自动边缘化 可以躲](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md), 闲下来了, 接触得[也少了](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md), 就管好自己仨瓜俩枣是对的
 - 我有更高的追求 [盛宴](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-近朱者赤.md)
