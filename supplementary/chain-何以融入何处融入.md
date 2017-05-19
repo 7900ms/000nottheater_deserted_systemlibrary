@@ -13,6 +13,8 @@ chain-何以融入何处融入.md (没考虑清楚，不要融入。没联系到
 
 [当前阶段 由头-条件限制,看(先)做什么](https://ruby-china.org/notes/4055)
 
+-
+
 真实惠-由头，条件限制下，[对对的人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md)融入，对错的人 自动边缘化 自由世界自己[躲开](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md) 
 
 真的由头,真的信,社会地位[不会掉](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md)
