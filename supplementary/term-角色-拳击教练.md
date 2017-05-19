@@ -42,7 +42,7 @@
 - [社会地位](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-何以融入何处融入.md)可以[不会掉](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md)
 - 我不怕寂寞，我有要看的东西 [躲避后](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/supplementary)
 - 我保持好状态，[可以看人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-何以融入何处融入.md): 否定人、肯定人
-- 自由世界在于自由行动 [对错的人 自动边缘化 可以躲](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md), 闲下来了, 接触得[也少了](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md), 是对的
+- 自由世界在于自由行动 [对错的人 自动边缘化 可以躲](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md), 闲下来了, 接触得[也少了](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md), 就管好自己仨瓜俩枣是对的
 - 我有更高的追求 [盛宴](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-近朱者赤.md)
 - 继续保持 [给人真实惠](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small#由头-真实惠)
 
