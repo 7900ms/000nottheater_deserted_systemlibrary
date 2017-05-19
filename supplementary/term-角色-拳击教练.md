@@ -36,6 +36,12 @@
 - [chain-何以融入何处融入](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-何以融入何处融入.md)
 - [term-角色-拳击教练](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-角色-拳击教练.md)
 
+我可以去做
+- 别人看的东西我不需要
+- 保证社会地位[不会掉](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md)
+- 我不怕寂寞，我有要看的东西 [躲避后](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md)
+- 我保持好状态，[可以看人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-何以融入何处融入.md)
+- 我有更高的追求 [盛宴](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-近朱者赤.md)
 
 -
 
