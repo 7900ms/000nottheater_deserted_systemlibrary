@@ -7,9 +7,11 @@ chain-何以融入何处融入.md
 
 [由头-条件限制,看(先)做什么](https://ruby-china.org/notes/4055)
 
-[对的人,真实惠](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small), 真实惠[在各个领域/各个限制条件下,都有由头-真实惠](ttps://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small), [各个阶段](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md) [由头:“很好的”七一节](https://ruby-china.org/notes/4055) [有真实惠 考虑各种自由行动，心里的由头是不变的](https://www.v2ex.com/notes/28139)
+[对的人,真实惠](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small), 真实惠[在各个领域/各个限制条件下,都有由头-真实惠](ttps://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small), [由头:“很好的”七一节](https://ruby-china.org/notes/4055) [有真实惠 考虑各种自由行动，心里的由头是不变的](https://www.v2ex.com/notes/28139)
 
-[由头-条件限制,看(先)做什么](https://ruby-china.org/notes/4055)
+[各个阶段](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md)
+
+[当前阶段 由头-条件限制,看(先)做什么](https://ruby-china.org/notes/4055)
 
 真实惠-由头，条件限制下，[对对的人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md)融入，对错的人 自动边缘化 自由世界自己[躲开](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md) 
 
