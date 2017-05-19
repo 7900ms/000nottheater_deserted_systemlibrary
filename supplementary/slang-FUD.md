@@ -3,7 +3,7 @@ FUD
 
 小圈子很好 小圈子([拳击教练保护圈里人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-角色-拳击教练.md))：就是讲义气 讲[小圈子](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md) [小圈子可以](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-何以融入何处融入.md)
 
-用 FUD 破除小圈子：让人“跳出舒适区” [忽悠人] [不讲真实惠,不讲由头,一心扑。被工作定义的人 这很疯狂！不是常人！](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-工作-职业评估.md)
+用 FUD 破除小圈子：让人“跳出舒适区” [忽悠人] [不讲真实惠,不讲由头,不讲先后,一心扑,讲道德。被工作定义的人 这很疯狂！不是常人！](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-工作-职业评估.md)
 
 反侦察：
 - [term-聊儿-怎么会说出这种话来](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊儿-怎么会说出这种话来.md)
