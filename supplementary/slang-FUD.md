@@ -15,7 +15,7 @@ FUD
 - [不被干扰](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-何以融入何处融入.md)
 - [自由世界 我很挑食](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md)
 - [有真实惠]()
-- 收回对一切人的一切尊重！[自由世界是关于“自行行动”,不是关于“互相包容”](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md)
+- 收回对一切人的一切尊重！[自由世界是关于“自由行动(自己可以躲开觉得恶心的人)”,不是关于“互相包容”](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md)
 
 
 = = =
