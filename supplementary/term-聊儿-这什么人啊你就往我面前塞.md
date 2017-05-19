@@ -1,5 +1,5 @@
 
-term-聊儿-这什么人啊你就忘我面前塞 - [youtube 欢乐颂S2E13](https://youtu.be/k3_QFRMCV4c?t=8m10s)
+term-聊儿-这什么人啊你就往我面前塞 - [youtube 欢乐颂S2E13](https://youtu.be/k3_QFRMCV4c?t=8m10s)
 
 (这孩子 就是一个败家子，前2天一起吃了个饭 花钱大手大脚 赚得还不及他的零头，还挺闷骚：看见我和安迪都转不开眼 *(让我们很不舒服,我们鄙视他)* )
 
