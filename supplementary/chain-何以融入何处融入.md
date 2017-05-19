@@ -7,9 +7,9 @@ chain-何以融入何处融入.md (没考虑清楚，不要融入。没联系到
 
 [由头-条件限制,看(先)做什么](https://ruby-china.org/notes/4055)
 
-[对的人,真实惠](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small), 真实惠[在各个领域/各个限制条件下,都有由头-真实惠](ttps://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small), [由头:“很好的”七一节](https://ruby-china.org/notes/4055) [有真实惠 考虑各种自由行动，心里的由头是不变的](https://www.v2ex.com/notes/28139)
+[对的人,真实惠](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small), 真实惠[在各个领域/各个限制条件下,都有由头-真实惠](ttps://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small), [由头:“很好的”七一节/八一节/各种节](https://ruby-china.org/notes/4055)， [有真实惠 考虑各种自由行动，心里的由头是不变的](https://www.v2ex.com/notes/28139)
 
-[有由头的,各个阶段](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md)。[和没由头的是不一样的,失去由头-盲目融入下等人-则社会地位会掉](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md)
+[有由头的,各个阶段](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md)。[驱动具体化,还是原由头 -- 和没由头的是不一样的,失去由头-盲目融入下等人-则社会地位会掉](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md)
 
 [当前阶段 由头-条件限制,看(先)做什么](https://ruby-china.org/notes/4055)
 
