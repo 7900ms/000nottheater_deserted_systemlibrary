@@ -39,7 +39,7 @@
 
 我可以去做
 - 别人看的东西我不需要
-- 保证社会地位[不会掉](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md)
+- [社会地位](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-何以融入何处融入.md)可以[不会掉](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md)
 - 我不怕寂寞，我有要看的东西 [躲避后](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/supplementary)
 - 我保持好状态，[可以看人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-何以融入何处融入.md): 否定人、肯定人
 - 自由世界在于自由行动 [可以躲](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md)
