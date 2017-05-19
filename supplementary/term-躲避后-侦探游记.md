@@ -24,7 +24,7 @@ term-genre-侦探游记
 觉得看的东西很泛泛 而且是看上年头的作品 是很好的,大家都看我也看
 ```
 (不看故事，不看古今中外故事，不看职场小说 不看人说的话)<br>
-<sub>(这样的人 没有理由会因为接触多了“华而不实的污物”而学坏,被污染，因为不接触。只接触上等or专业人士)。否则社会等级会掉:终会变成[鸡兔同笼](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md),该躲没躲开。而且自己的东西(几大原则,对于真实惠的认识) 足够保持在一个较好的水平</sub>
+<sub>(这样的人 没有理由会因为接触多了“华而不实的污物”而学坏,被污染，因为不接触。只接触上等or专业人士)。否则社会等级会掉:终会变成[鸡兔同笼](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md),该躲没躲开。而且自己的东西(几大原则,对于真实惠的认识) 足够保持在一个较好的水平。[第三种做难的事-跟着那些做难的事的人](https://cn.nytimes.com/opinion/20170412/how-i-learned-to-take-the-sat-like-a-rich-kid/)</sub>
 ```
 知道我自己需要什么
 知道自己需要看的和别人不一样
