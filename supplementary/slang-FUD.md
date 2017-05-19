@@ -1,4 +1,10 @@
 
+>
+> 对付 FUD 最简单了，甚至用不到几大原则：
+> 收回对一切人的一切尊重
+> 反侦察能力
+>
+
 FUD
 
 小圈子很好 小圈子([拳击教练保护圈里人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-角色-拳击教练.md))：就是讲义气 讲[小圈子](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md) [小圈子可以](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-何以融入何处融入.md)
