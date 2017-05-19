@@ -17,3 +17,5 @@
 我为什么不能双重标准呢？讨厌的人、喜欢的人 为什么要一样的标准？ [神经病](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-对文诌诌的词.md)
 
 双重标准是骂人的么？-[怎么会说出这种话来](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊儿-怎么会说出这种话来.md),太可悲了
+
+人家为什么对你这么说(说出双重标准云云)呢？[忽悠傻子呢呗](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/slang-FUD.md)
