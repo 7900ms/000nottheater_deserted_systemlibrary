@@ -31,6 +31,7 @@
 
 我有
 - 收回对一切人的一切尊重
+- 只有一个特别小的小圈子，就挺好
 - [term-躲避后-侦探游记](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md)
 - [chain-何以融入何处融入](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-何以融入何处融入.md)
 - [term-角色-拳击教练](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-角色-拳击教练.md)
