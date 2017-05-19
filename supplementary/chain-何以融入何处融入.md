@@ -3,6 +3,8 @@ chain-何以融入何处融入.md (没考虑清楚，不要融入。没联系到
 
 [不被工作定义,自由世界自由行动可避开](https://www.v2ex.com/notes/28139)
 
+[从不鸡兔同笼辜负自由世界,从不,可以去组自己的团](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md) [不被定义工作定义,可避开最恶心的人,各个阶段丫都掉队了](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-近朱者赤.md)，由头-真实惠
+
 [由头-真实惠](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small),[由头会各阶段变](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md)
 
 [由头-条件限制,看(先)做什么](https://ruby-china.org/notes/4055)
