@@ -21,3 +21,18 @@
 人家为什么对你这么说(说出双重标准云云)呢？[忽悠傻子呢呗](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/slang-FUD.md)
 - 先让你对一切人一切尊重
 - 然后就可以忽悠你
+
+= = = =
+
+我觉得你伤不了我
+- [FUD](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/slang-FUD.md)
+- [term-聊儿-这什么人啊你就往我面前塞](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊儿-这什么人啊你就往我面前塞.md)
+- [chain-对文诌诌的词](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-对文诌诌的词.md)
+我有
+- 收回对一切人的一切尊重
+- [term-躲避后-侦探游记](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md)
+- [chain-何以融入何处融入](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-何以融入何处融入.md)
+- [term-角色-拳击教练](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-角色-拳击教练.md)
+
+-
+
