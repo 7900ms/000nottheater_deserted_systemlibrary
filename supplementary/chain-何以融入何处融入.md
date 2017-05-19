@@ -20,8 +20,8 @@ chain-何以融入何处融入.md (没考虑清楚，不要融入。没联系到
 最后，懂得 [单向服务他人,对于“怎么会说出这种话来”的人,不给服务](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊儿-怎么会说出这种话来.md)，懂得[隔离](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-separating-隔离导致更好的隔离.md) [比如可以不跟跑也不必](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/net-account-manager-overseas) 。跟他们[互不干扰](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md), [自由行动](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-自由世界.md), 看心情[share价值观](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/small/share.md)
 
 即
-- 人我: 不被干扰,错的人隔离,把住对的人,跟大牛吃香喝辣
-- 我我: 自由行动,寻找同类,躲开错的人(可以不看错的人看的书)
+- 人我: 不被干扰,错的人隔离，把住对的人,跟大牛吃香喝辣
+- 我我: 自由行动,时时刻刻把握真实惠，躲开错的人(可以不看错的人看的书,可以不接触错的人和错的人接触的东西)，由头-真实惠是不变的,阶段可不同，不加入错的人的社会地位
 - 我人: 给予真实惠,服务于人
 
 -
