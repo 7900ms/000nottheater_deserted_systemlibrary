@@ -28,6 +28,7 @@
 - [FUD](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/slang-FUD.md)
 - [term-聊儿-这什么人啊你就往我面前塞](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊儿-这什么人啊你就往我面前塞.md)
 - [chain-对文诌诌的词](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-对文诌诌的词.md)
+
 我有
 - 收回对一切人的一切尊重
 - [term-躲避后-侦探游记](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md)
