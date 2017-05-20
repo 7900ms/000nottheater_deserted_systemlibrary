@@ -23,6 +23,8 @@
 - 先让你对一切人一切尊重
 - 然后就可以忽悠你
 
+人家为什么对你这么说(说出双重标准云云)呢？ [让你(在他的地盘)出丑](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-对文诌诌的词.md)
+
 = = = =
 
 我觉得你伤不了我
