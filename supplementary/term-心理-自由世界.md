@@ -23,4 +23,5 @@
 面对最狡猾的人：<br>
 你需要帮助! 
 被人无缘无故地帮助了, 觉得谁都会帮助你! 你就成为了众多人们“[帮助](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-call.md)”的对象
+`一个人不会无缘无故帮你的`
 
