@@ -1,7 +1,7 @@
 
 chain-call.md
 
-检测-决定-行动-相信
+检测-决定-行动-相信：在好人队里从众，在坏人队里特立独行
 
 检测：[时间花销](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/travelwriting/small/3.md)
 
