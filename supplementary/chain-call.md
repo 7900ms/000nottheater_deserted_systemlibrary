@@ -10,7 +10,9 @@ chain-call.md
 行动：如果周围人都是懒人/做坏了事的人/做容易的事的人(只是偶尔做难的事)，那很容易，我就特立独行 就是对的 
 <br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
      在好人队里从众，在坏人队里特立独行
-
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+     不接受“[帮助](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-call.md)”
+     
 相信：我是对的，相比周围的人
 
 (回看：我，到底，是否在，特立独行？ 看你时间花销)<br><br><br>
