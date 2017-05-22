@@ -67,7 +67,7 @@ oh cmon whats wrong with u?
 (想像到最差后果做,share不到价值观的话 没有十万个为什么 机子而已 没出错 就是对)
 (乃们说那点儿玩意，whats the point of doing so? 难道还有我没周全考虑到的吗,活儿太细的根本是之前的工作没做好导致的啊 乃们始作俑者来解答吧我也不需要掺和啊)
 ```
-vs
+vs (在坏人队里)不[特立独行](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/travelwriting/small/3.md)
 ```
 不该这样做
 别人说这样做不对
