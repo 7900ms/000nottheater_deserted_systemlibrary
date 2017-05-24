@@ -47,5 +47,5 @@ FUD
 > 我觉得你伤不了我，原因：
 > 1. 由头 为这不为那.log(深夜回想)：对，只看初衷 由头，其他掰扯不清、也不用掰扯
 > 2. 由头不对劲, 《[西式](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-意图.md)》对待 (不用陪你干耗)：猜到别人的意图 -> 知道大致是来“[帮助](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-call.md)”人的 -> 不在乎别人的(细节)意图 -> 有自己的意图 -> 由头-限制条件-看(先)做什么，这很忙了 `<西式>` --》 打发休闲时光,有自己的小世界,keep things organized, 休息得精力十足 回工作中
-> 3. 一个字 狠
+> 3. 一个字 [狠](#重在有力)
 
