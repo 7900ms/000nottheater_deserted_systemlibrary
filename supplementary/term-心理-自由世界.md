@@ -31,3 +31,22 @@
 人被狗咬，是人的错
 人咬狗，还是人的错。
 所以只能躲开。自由世界，去寻找自己的团
+
+>
+> 
+```
+我来解释一下[这些话](https://www.v2ex.com/t/363512)：
+
+The University believes that to be an informed global citizen it is critical to hear different viewpoints,
+自由世界，你会见到不同的人
+to embrace diversity, and demonstrate tolerance when faced with views with which we may disagree.
+他们可能是一只狗
+Listening to and respectfully engaging with those whom we disagree are essential skills,
+感谢自由世界，不让人狗同笼
+both within university walls and beyond.
+希望鸡兔同笼而不打架，那么和封闭世界有什么区别呢？别忘啦，我们是在自由世界里
+自由世界的意义在于：能躲开很多人，去找到自己的骑士团和“盛宴”
+```
+> 
+>
+>
