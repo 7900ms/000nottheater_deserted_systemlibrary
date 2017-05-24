@@ -44,8 +44,10 @@ MARKETING
 感谢自由世界,可以躲开这些人,不用鸡兔同笼
 
 ```
-12.
+<sub>
+12.<br>
 心情调整 giveASec 调整好之后,确认很有力度地调整好之后,再做事 (超级明确：丫就是我避之不及的那种坏人，到处给人“[帮助](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-call.md)”的人)
+</sub>
 
 log
 
