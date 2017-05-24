@@ -46,9 +46,14 @@ MARKETING
 ```
 <sub>
 12.<br>
-心情调整 giveASec 调整好之后,确认很有力度地调整好之后,再做事 (超级明确：丫就是我避之不及的那种坏人，到处给人“[帮助](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-call.md)”的人)
+心情调整 giveASec 调整好之后,确认很有力度地调整好之后,再做事 (超级明确：丫就是我避之不及的那种坏人，到处给人“<a href='https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-call.md'>帮助</a>”的人)<br>
+《西式》
 </sub>
 
+```
+1. 由头 为这不为那.log(深夜回想)：对，只看初衷 由头，其他掰扯不清、也不用掰扯
+2. 由头不对劲, 《西式》对待：猜到别人的意图 -> 知道大致是来“帮助”人的 -> 不在乎别人的(细节)意图 -> 有自己的意图 -> 由头-限制条件-看(先)做什么，这很忙了 `<西式>` --》 打发休闲时光,有自己的小世界,keep things organized, 休息得精力十足 回工作中
+```
 log
 
 chain-典型一天
