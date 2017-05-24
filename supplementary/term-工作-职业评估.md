@@ -96,5 +96,28 @@
 
 
 
+### 备忘录4
+做的事立刻得到别人承认，排序
+```
+做的事立刻得到别人承认
+做的事没立刻得到别人承认
+```
+```
+做的事立刻得到别人承认，说自己很辛苦 - 加薪
+做的事没立刻得到别人承认，说自己很辛苦 - 开除
+```
+[chain-独立](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-意图.md#chain-独立)
+
+(由头-真实惠,条件限制-看(先)做什么)
+
+条件限制做轻松的事 -> 做的事儿立刻得到别人的承认 -> 加薪 -> 更大的任务 -> 专家 professional -> 更得到人的承认
+
+条件限制做轻松的事 -> 做的事儿 没有 立刻得到别人的承认 -> 被人强功绩 -> 不够“独立” -> Y(看不出自己的螺丝钉属性-只能作为一个整体被人承认。误认为自己的技术含量不够->加强技术含量->仍然是!没有立刻得到别人的承认!) -> 在别人看来,是做鸡毛蒜皮的事 -> 没加薪 -> 自己的时间可都是[时间开销](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-call.md)花在这里
 
 
+
+
+
+
+
+-
