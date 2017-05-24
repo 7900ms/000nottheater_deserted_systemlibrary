@@ -20,7 +20,7 @@ slang-MARKETING
 
 <hr>
 
-参数对比
+参数对比: 屏幕尺寸与耗电
 
 AMOLED LTPS 屏幕哪个好
 
@@ -30,7 +30,7 @@ LTPS - 低温多晶硅屏, AMOLED - 可能更费电
 ```
 荣耀 NOTE 8 - 6.6寸 - AMOLED屏 - 4500mAh
 荣耀V8 - 5.7寸 - TFT液晶显示屏
-荣耀V9 - 5.7寸 - LTPS屏 - 
+荣耀V9 - 5.7寸 - LTPS屏 - 4000mAh
 ```
 
 <hr>
