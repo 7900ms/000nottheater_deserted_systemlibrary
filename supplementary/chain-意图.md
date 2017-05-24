@@ -17,7 +17,8 @@ chain-意图：
 人家让吃饭 就吃饭, 不问那么多“诶为什么非要这个点儿开饭啊” - 我还要去上我的钢琴课,没功夫管这个 / 我只是去上我的钢琴课,吃饱饭有营养(食堂规定开饭时间,不用我来定)
 
 ：：你当我是仙人马大姐啊？
-：：我们这的价值观就是，自己管自己的事 (自己的意图) ，只在 [打发休闲时光](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-电影原声.md) 时一起share
+：：我们这的价值观就是，自己管自己的事 (自己的意图) ，只在 [打发休闲时光](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-电影原声.md) 
+时一起share
 
 ```
 
