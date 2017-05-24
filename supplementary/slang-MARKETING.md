@@ -40,7 +40,11 @@ AMOLED LTPS 屏幕哪个好
 
 LTPS - 低温多晶硅屏, AMOLED - 可能更费电
 
-
-
+产品：
+```
+荣耀 NOTE 8 - 6.6寸 - AMOLED屏
+荣耀V8 - 5.7寸 - TFT液晶显示屏
+荣耀V9 - 5.7寸 - LTPS屏
+```
 
 -
