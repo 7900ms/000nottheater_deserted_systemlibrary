@@ -49,7 +49,7 @@ MARKETING
 ```
 <sub>
 12.<br>
-心情调整 giveASec 调整好之后,确认很有力度地调整好之后,再做事 (超级明确：丫就是我避之不及的那种坏人，到处给人“<a href='https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-call.md'>帮助</a>”的人)<br>
+心情调整 giveASec 调整好之后,确认很有力度地调整好之后,再做事 (超级明确：1.我只看由头，对，其他掰扯不清，也不用掰扯。 2.从丫的由头上看，他就是我避之不及的那种坏人，到处给人“<a href='https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-call.md'>帮助</a>”的人)<br>
 《西式》
 </sub>
 
