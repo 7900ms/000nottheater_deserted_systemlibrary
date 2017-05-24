@@ -3,6 +3,8 @@ slang-MARKETING
 
 对，只看初衷 由头，其他掰扯不清、也不用掰扯 ===> 这里的由头-真实惠，除了卖货 没别的了
 
+[你为什么伤不了我](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/slang-FUD.md#我觉得你伤不了我,因为我够狠。在墙内防中共的毒，在墙外防你的毒)
+
 抬杠 广告 自说自话
 
 >
