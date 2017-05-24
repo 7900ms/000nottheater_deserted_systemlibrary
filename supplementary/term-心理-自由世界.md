@@ -25,3 +25,9 @@
 被人无缘无故地帮助了, 觉得谁都会帮助你! 你就成为了众多人们“[帮助](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-call.md)”的对象
 `一个人不会无缘无故帮你的`
 
+
+... 
+
+人被狗咬，是人的错
+人咬狗，还是人的错。
+所以只能躲开。自由世界，去寻找自己的团
