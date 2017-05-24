@@ -32,6 +32,13 @@ slang-MARKETING
 
 -
 
+<hr>
+
+参数对比
+
+AMOLED LTPS 屏幕哪个好
+
+LTPS - 低温多晶硅屏, AMOLED - 可能更费电
 
 
 
