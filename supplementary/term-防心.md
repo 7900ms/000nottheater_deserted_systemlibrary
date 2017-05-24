@@ -30,6 +30,8 @@ MARKETING
 8
 我自己最好不用找人来认可。我本来就很好, 反对潜规则, 知道 由头-真实惠。
 第三种爱情 学业 霸业 做难的事 寻找同类(服务他人) 寻找自己, 唯一确定的就是具体事具体分析, 由头-真实惠,条件限制,看(先)做什么，好心情-keepThingsOrganized，好心情-反对潜规则，给人由头-真实惠，成熟的性格(知道男人怎么舒服,女人怎么舒服,两人怎么舒服)
+知道会遇到..
+- 更恶心的文绉绉的词、潜规则 - 躲开，不必瞎猜别人的意图《西式》(自己没意图就被人牵着走)，有拳击教练的保护
 
 9
 大概知道别人的意图(也知道这些人在他们自己的圈子里可能小有名气 - 那就别往那里凑了呗,否则鸡兔同笼了), 在乎的是自己的意图
@@ -45,7 +47,7 @@ chain-典型一天
 
 [男孩 女孩](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-call.md)
 
-
+[近朱者赤](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-近朱者赤.md)
 
 
 
