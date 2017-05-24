@@ -29,6 +29,7 @@ LTPS - 低温多晶硅屏, AMOLED - 可能更费电
 产品：
 ```
 荣耀 NOTE 8 - 6.6寸 - AMOLED屏 - 4500mAh
+Mate9 - 5.9寸 - TFT显示屏 - 4000mAh
 荣耀V8 - 5.7寸 - TFT液晶显示屏
 荣耀V9 - 5.7寸 - LTPS屏 - 4000mAh
 ```
