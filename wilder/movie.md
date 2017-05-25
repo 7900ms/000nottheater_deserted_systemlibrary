@@ -24,5 +24,10 @@ PS.是 打发休闲时光 看到的
 -
 
 <sub>G-淑贤罗汉</sub>
+
 [3](https://v.qq.com/x/cover/l8irh70t36z2u8f/h0015dudq5t.html)
 [罗汉林冲](https://movie.douban.com/subject/24867835/discussion/59512501/)
+
+[不窝囊](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/slang-FUD.md)
+
+[-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-对文诌诌的词.md)
