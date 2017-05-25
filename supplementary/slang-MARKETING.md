@@ -94,7 +94,7 @@ Mate9 - 5.9寸 - TFT显示屏 - 4000mAh
 
 没见识的，才会买账
 
-有见识的人：你丫根本就不懂什么叫做 keep things organized ，自己桌面都那么乱，还指导别人工作？
+有见识的人：你丫根本就不懂什么叫做 keep things organized ，自己桌面都那么乱，还指导别人工作[？](https://twitter.com/celinaxnicole/status/867581208317747200)
 
 
 -
