@@ -1,0 +1,8 @@
+
+[重在有力](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/slang-MARKETING.md)
+
+[watch](https://youtu.be/oeXj_Bqo6cc?t=5m46s#重在有力) and [watch](https://www.youtube.com/watch?v=v92os3hmQwE)
+
+[read](https://site.douban.com/160929/widget/notes/8483035/note/241925789/)
+
+这张有点傻不拉几的。但是朱亚文身上浓浓的男性气息真的让人好想扑倒，这就是所谓爷们儿的感觉了[。](https://movie.douban.com/photos/photo/2167024065/)
