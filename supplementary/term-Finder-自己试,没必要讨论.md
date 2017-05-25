@@ -15,3 +15,11 @@
 看哪个都很好，听人家的广告语 MARKETING 很开心。到底用啥东西还是蒙蒙的
 ```
 
+= = =
+
+看不出，那只有看广告语咯 ~ the best ~ the most effective ~
+[-](https://spins.fedoraproject.org/)
+[-](http://www.makeuseof.com/tag/best-lean-linux-desktop-environment-lxde-vs-xfce-vs-mate/)
+
+参考
+[数据](https://l3net.wordpress.com/2013/03/17/a-memory-comparison-of-light-linux-desktops/)
