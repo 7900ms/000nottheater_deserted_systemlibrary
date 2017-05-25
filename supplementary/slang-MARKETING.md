@@ -83,7 +83,7 @@ Mate9 - 5.9寸 - TFT显示屏 - 4000mAh
 双十一大酬宾 快来抢购吧！
 ```
 
-诶 这个京东金斗什么乱七八糟的，用得着吗？ --用不着！
+诶 这个京东金斗什么乱七八糟的，用得着吗？ --用不着[！](https://www.youtube.com/watch?v=Ocyc8e3fq_o#美的力量)
 
 
 
@@ -94,7 +94,7 @@ Mate9 - 5.9寸 - TFT显示屏 - 4000mAh
 
 没见识的，才会买账
 
-有见识的人：你丫根本就不懂什么叫做 keep things organized ，自己桌面都那么乱，还指导别人工作[？](https://twitter.com/celinaxnicole/status/867581208317747200)
+有见识的人：你丫根本就不懂什么叫做 keep things organized ，自己桌面都那么乱，还指导别人工作[？](https://twitter.com/celinaxnicole/status/867581208317747200#重在有力)
 
 
 -
