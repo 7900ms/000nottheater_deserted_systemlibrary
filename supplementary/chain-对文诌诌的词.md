@@ -25,7 +25,7 @@ chain-对文诌诌的词.md
 
 国家主席就是一个暴君，人人就会学他，所以就有这么多的暴君。主席姐夫在巴拿马文件上，他贪污不受到法律制裁，为什么我不能贪污？ —— 法律不会惩罚主席，但是会惩罚我，很好，那我移民！
 
-这就是每天在大陆上演的戏码。你再说个什么文绉绉的词语来[概括一下](https://www.v2ex.com/t/362757#逗死你)？
+这就是每天在大陆上演的戏码。你再说个什么文绉绉的[词语](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md#https://www.v2ex.com/notes/28139#华而不实的污物)来[概括一下](https://www.v2ex.com/t/362757#逗死你)？
 
 
 >
