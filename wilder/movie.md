@@ -3,7 +3,7 @@ PS.是 打发休闲时光 看到的
 
 [重在有力](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/slang-MARKETING.md)
 
-[watch](https://youtu.be/oeXj_Bqo6cc?t=5m46s#重在有力) and [watch](https://www.youtube.com/watch?v=v92os3hmQwE)
+[watch](https://youtu.be/oeXj_Bqo6cc?t=5m46s#重在有力) and [watch](https://www.youtube.com/watch?v=v92os3hmQwE#罗汉。你这个人就是太规矩了)
 
 [read](https://site.douban.com/160929/widget/notes/8483035/note/241925789/)
 
