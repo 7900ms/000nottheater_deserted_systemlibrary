@@ -1,7 +1,7 @@
 
 >
 > 对付 FUD 最简单了，甚至用不到几大原则和服务于人：<br>
-> 【 只看由头, 尤其对背景不明的人 】<br>
+> 【 只看由头, 尤其对背景不明的人，为什么[文绉绉](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-对文诌诌的词.md#为什么人家要用一个文绉绉的词) 】<br>
 > 收回对一切人的一切尊重 ( 别觉得人家凭什么对你实诚? 招新吗 )<br>
 > 反侦察能力<br>
 > 承认傻子确实可能上当或被“忽悠”, 是他们自己的事,我顾好自己就行了<br>
