@@ -2,6 +2,7 @@
 chain-对文诌诌的词.md
 
 ([注意](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/small/正当防卫.md#华而不实的污物是三害之一，我也不学它。别人看的东西,我不需要看,我只看侦探游记))
+([注意](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-意图.md#我不用我不用分析你这个比喻精彩不精彩，我只要知道你的意图(褒贬、程度)就够了--我给人由头-真实惠))
 
 我有感觉 -> 我讨厌一个东西, 我直接躲开它 -> 我知道不宜多说, 环境险恶得“只可意会不可言传”, 我会带我的朋友一起走 -> 自由世界本来就行动自由,我可以去组自己的团。你们自己会操翻自己先的 -> 我就有我自己的精致小圈子 -> 我知道有 由头-真实惠 给大家 -> 交上朋友了那就可以关键时刻救济你 -> 我服务于大家
 
