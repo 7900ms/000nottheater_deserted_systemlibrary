@@ -17,9 +17,11 @@
 
 = = =
 
-看不出，那只有看广告语咯 ~ the best ~ the most effective ~
+看不出，那只有看广告语咯 ~ the best ~ the most effective ~ a fresh ~ 
 [-](https://spins.fedoraproject.org/)
 [-](http://www.makeuseof.com/tag/best-lean-linux-desktop-environment-lxde-vs-xfce-vs-mate/)
+[-](https://en.wikipedia.org/wiki/Desktop_environment)
+[-](https://en.wikipedia.org/wiki/Comparison_of_X_Window_System_desktop_environments#G-desktop-environment-fvwm-source-kde)
 
 参考
 [数据](https://l3net.wordpress.com/2013/03/17/a-memory-comparison-of-light-linux-desktops/)
