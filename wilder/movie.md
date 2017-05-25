@@ -10,3 +10,15 @@ PS.是 打发休闲时光 看到的
 [reading](http://www.kuyv.cn/news/1759.html) [-](http://www.kuyv.cn/news/1759_31.html#31集)
 
 这张有点傻不拉几的。但是朱亚文身上浓浓的男性气息真的让人好想扑倒，这就是所谓爷们儿的感觉了[。](https://movie.douban.com/photos/photo/2167024065/)
+
+
+= = =
+
+要活得不憋屈，自己先得长本事！
+
+(报个英文学习班去! 女孩多)
+
+
+
+
+-
