@@ -203,7 +203,7 @@
 扭扭捏捏的女孩，缠着人家，而且接受了 不合格的恋爱观 (对方没有成熟的人格,不知道男人怎么舒服,女人怎么舒服,两人怎么舒服 - 不合格的恋爱者)
 <哥们是这样就是这样, 不想讲潜规则。不喜欢你就suo呗!>
 ```
-(我可以不猜的,我没有这个[意图](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-意图.md#我只要感受到氛围对劲就可以))
+(我可以不猜的,我没有这个[意图](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-意图.md#我只要感受到氛围对劲就可以))<br>[别人看的我不需要](https://www.youtube.com/watch?v=F1JBALmoT4o&list=RDVOIKwyJpwPM&index=2#作茧自缚啊简直) [红高粱](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/wilder/红高粱.md#)
 
 
 看有没有防心 排序
