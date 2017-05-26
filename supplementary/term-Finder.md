@@ -198,7 +198,7 @@ hk失落，台湾失落，本群咁骂哩嘀抽象嘢有咩用？念办法走到
 [我认识的娱乐圈内的大主持人们几乎都非常神秘，我跟他们很熟了也不好意思问出一些问题来，不知道他们心里到底在想什么，在镜头前他们很轻易就能躲开我的问题，他们知道我在干吗，会立刻躲开我的子弹](http://ent.sina.com.cn/m/c/2017-05-26/doc-ifyfqqyh8625498.shtml#我知道什么东西可能有毒。那种浓烈背后是什么我是知道的,so just in 1 sec “我不知道”,只因为我太知道它背后的潜规则。)
 ```
 
-我的[“愉快玩耍](https://github.com/7900ms/notmedia_deserted/blob/master/supplementary/脱口秀-BC&Lowy.md)”<br>
+我的“[愉快玩耍](https://github.com/7900ms/notmedia_deserted/blob/master/supplementary/脱口秀-BC&Lowy.md)”<br>
 “只要你能愉快玩耍，你和他在一起 我也会放手。只要你能幸福”
 “只要你能幸福，你跟不跟我走，我不在乎”
 ```
