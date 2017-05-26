@@ -182,7 +182,7 @@ hk失落，台湾失落，本群咁骂哩嘀抽象嘢有咩用？念办法走到
 我根本完全不想理他了，就一个坏掉的玩具。)
 (最好的办法：自己身份做自己身份的事,打发休闲时光不要被人曲解。不是你干的 别替人出头, 给人当枪使了 ... 亮明身份:宝贝有事吗(休闲搞笑型))
 ```
-只有在[Laura Jansen Signal](https://www.youtube.com/watch?v=fC32n4jMeM4)时才会认真
+只有在[Laura Jansen Signal](https://www.youtube.com/watch?v=fC32n4jMeM4)时才会认真，美好梦幻图画不忍破坏
 
 
 
