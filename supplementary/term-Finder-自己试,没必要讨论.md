@@ -25,3 +25,7 @@
 
 参考
 [数据](https://l3net.wordpress.com/2013/03/17/a-memory-comparison-of-light-linux-desktops/)
+
+
+问我对[谁谁的](https://www.zhihu.com/question/43634608)看法，你丫不会自己去看？
+
