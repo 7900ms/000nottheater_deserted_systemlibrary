@@ -187,5 +187,4 @@ hk失落，台湾失落，本群咁骂哩嘀抽象嘢有咩用？念办法走到
 
 [-](http://www.bilibili.com/video/av7566711#我们很早便学会了恨----not-easy-to-get-along-with。太疯狂了)
 
-[-](https://www.letscorp.net/archives/119668#某种程度上，知道它的疯狂程度-才不会受到它的干扰。才能确定由头-而不用看细节。我的由头就是由头-寻开心-条件限制-看(先)做什么-做一个休闲时光easyToGetAlongWith的人)
-
+[-](https://www.letscorp.net/archives/119668#某种程度上，知道它的疯狂程度-才不会受到它的干扰。才能确定由头-而不用看细节。我的由头就是由头-寻开心-条件限制-看(先)做什么-做一个休闲时光easyToGetAlongWith的人#======thisisMe.WheniThinkitstooDangrous,IStepAside.
