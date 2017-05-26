@@ -160,7 +160,7 @@ Mate9 - 5.9寸 - TFT显示屏 - 4000mAh
 见过世面的，自己事的重要性极高 就看你这个事办没办成。没办成：有礼貌，事没办成 没用。<br>
 而且 看你那个样子，就感觉你没有要结果的意思。所以就更不会给对方施压 人家不给你好好办的。
 
-
+[西式](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-意图.md)：自己的意图，由头-限制条件-看(先)做什么事。就是看自己的，不会关注别人
 
 
 
