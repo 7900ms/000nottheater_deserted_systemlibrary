@@ -185,5 +185,6 @@ hk失落，台湾失落，本群咁骂哩嘀抽象嘢有咩用？念办法走到
 ```
 只有在[Laura Jansen Signal](https://www.youtube.com/watch?v=fC32n4jMeM4)时才会认真，美好梦幻图画不忍破坏
 
+[-](http://www.bilibili.com/video/av7566711#我们很早便学会了恨----not-easy-to-get-along-with)
 
 
