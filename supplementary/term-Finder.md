@@ -188,3 +188,5 @@ hk失落，台湾失落，本群咁骂哩嘀抽象嘢有咩用？念办法走到
 [-](http://www.bilibili.com/video/av7566711#我们很早便学会了恨----not-easy-to-get-along-with。太疯狂了)
 
 [-](https://www.letscorp.net/archives/119668#某种程度上，知道它的疯狂程度-才不会受到它的干扰。才能确定由头-而不用看细节。我的由头就是由头-寻开心-条件限制-看先做什么-做一个休闲时光easyToGetAlongWith的人#======thisisMe.WheniThinkitstooDangrous,IStepAside.=======够狠，12岁小孩的意图:不分析你的意图，你可能烦到我-我就防着你，就这么简单。---避开了烦人的人而后会自然而然地形成交往圈子，再烦人就再踢出去一个)
+
+[-](http://ent.sina.com.cn/m/c/2017-05-26/doc-ifyfqqyh8625498.shtml#我知道什么东西可能有毒。那种浓烈背后是什么我是知道的,so just in 1 sec “我不知道”,只因为我太知道它背后的潜规则。)
