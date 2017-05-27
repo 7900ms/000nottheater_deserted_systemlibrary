@@ -3,6 +3,8 @@ term-Finder-给予匹配的方式.md
 
 [会给人 用和他匹配的方式](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/small/正当防卫.md)
 
+具体问题具体分析：如果一个人作死，那么他就会死。<br><br><br>
+
 唯一保证的是：具体问题具体分析。
 为什么我够狠？ ———— 为什么我不狠？我把人家当回事，人家把我当回事了吗？
 
