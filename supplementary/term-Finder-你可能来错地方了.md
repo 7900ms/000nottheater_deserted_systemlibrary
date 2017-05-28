@@ -63,4 +63,9 @@ eg 说自己的感觉，以及 感觉的由来 ~~说我的看法，xx应该怎�
 
 (我是不打算被说服的，因为我的感觉的转变需要 哄开心-哄乐呵-看你说啥-有意思-你来聊你的感觉-我仔细听听-我自己感觉-我也是这么感觉的--这是我有了新感觉)
 
+= = =
+
+[做的事](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-工作-职业评估.md)没有得到别人承认 - 我可能来错地方了
+
+= = =
 
