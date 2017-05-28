@@ -114,7 +114,7 @@
 
 条件限制做轻松的事 -> 做的事儿 没有 立刻得到别人的承认 -> 被人强功绩 -> 不够“独立” -> Y(看不出自己的螺丝钉属性-只能作为一个整体被人承认。误认为自己的技术含量不够->加强技术含量->仍然是!没有立刻得到别人的承认!) -> 在别人看来,是做鸡毛蒜皮的事 -> Y(看不到别人认为自己的工种是“无法独当一面,并非不可或缺”;反而向别人证明自己的“技术含量”) -> 没加薪 -> 自己的时间可都是[时间开销](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-call.md)花在这里 (能挣钱就行,不在乎能不能 1.立即得到别人承认 2.如果没有,那就不是不可或缺的,那就不能得到别人的承认,丫就螺丝钉,被抢功,薪水始终加不上去 --- 和技术含量 完全无关,因为是 人的承认,人在给你发工资)
 
-[做的事](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-工作-职业评估.md)没有得到别人承认 - 我可能[来错地方](ttps://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder-你可能来错地方了.md)了
+[做的事](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-工作-职业评估.md)没有得到别人承认 - 我可能[来错地方](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder-你可能来错地方了.md)了
 
 
 
