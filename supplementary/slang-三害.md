@@ -14,3 +14,11 @@
 - [互相比拼谁更文绉绉吗](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/small/正当防卫.md#文字是无力的。文绉绉是华而不实的污物是三害之一，我也不学它。别人看的东西,我不需要看,我只看侦探游记)
 - [华而不实的污物](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md#华而不实的污物)
 
+怎么防：
+- 不去上来就看他的具体内容，而是 用心感觉
+```
+他走错地方了？
+我走错地方了？
+```
+- 我走错地方了，那我就走好了，大方承认自己会有[更好的地方](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder-你可能来错地方了.md)等着我，我可以先离开这里 (如果的确好 我还可以回来)
+- 他走错地方了，那他会自己走的
