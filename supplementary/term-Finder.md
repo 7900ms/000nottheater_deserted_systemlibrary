@@ -253,7 +253,7 @@ Ghost🇺🇸, [May 26, 2017, 8:53 PM]:
 = = = = =
 
 我的感觉:
-关于大陆：大陆是这样的无耻国度。你很相信人权，而大陆没有人权 -> 它很可能会说,不是它的错,是‘让你相信人权’的人的错 -> 它会说theyReSellingUSthgBad -> 配合的工作就是弄了很多禁书,宣传那种‘[看它本身有错，但是因为‘给了我好处’ 所以 我就觉得它对](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-承认自己来错了地方.md)’的收买办法 + 鼓励人们贪财
+关于大陆：大陆是这样的无耻国度。你很相信人权，而大陆没有人权 -> 它很可能会说,不是它的错,是‘让你相信人权’的人的错 -> 它会说theyReSellingUSthgBad -> 配合的工作就是弄了很多禁书,宣传那种‘[看它本身有错，但是因为‘给了我好处’ 所以 我就觉得它对](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-承认自己来错了地方.md)’的收买办法 + 政治手段用商业收买 + 鼓励人们贪财
 
 关于外国：外国因为‘虚虚实实’到一定程度了，所以会在‘实’的部分，明确说是‘实’且共同约定这就是‘实’的且定下规则。这是非常好的。
 
