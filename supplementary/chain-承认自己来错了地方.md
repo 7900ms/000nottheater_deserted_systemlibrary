@@ -18,3 +18,5 @@ chain-承认自己来错了地方.md
 ```
 
 [两个国家](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder.md)层面的来错了地方
+
+[大陆模式](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder.md)
