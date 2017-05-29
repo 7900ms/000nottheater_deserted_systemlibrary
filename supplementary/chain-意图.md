@@ -108,7 +108,7 @@ chain-意图[：](#打发休闲时光#不分析你的意图，你可能烦到我
 chain-独立-醒醒-回到自己小世界挺好-只看侦探游记
 
 
-诶醒醒吧 -> 人家不会变的,政治改革是一代人的事情,一代人没种 我自己有种也没办法的 -> [打发休闲时光](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/small/正当防卫.md#同时防三害) [-](http://www.ftchinese.com/story/001072699?full=y)
+诶[醒醒吧](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-承认自己来错了地方.md#国家层面来错了地方) -> 人家不会变的,政治改革是一代人的事情,一代人没种 我自己有种也没办法的 -> [打发休闲时光](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/small/正当防卫.md#同时防三害) [-](http://www.ftchinese.com/story/001072699?full=y)
 ```
 政治学的基本假设是统治者永远都想要保持政治权力。面对社会要求改革的压力，他会考虑镇压成本与容忍成本何者较为巨大。一旦民间压力让其无法忽视，一旦镇压将会付出巨大成本时，威权统治者会考虑实行某种改革，来维持政治权力的延续。
 ```
