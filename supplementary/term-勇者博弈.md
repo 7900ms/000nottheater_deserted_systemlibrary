@@ -11,6 +11,6 @@ feeling [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/
 
 有趣的是，车毁人亡的结局很少出现，获胜者从来都是能让对手确信“我宁可去死也绝对不会避让”的一方[。](https://www.letscorp.net/archives/119770)
 
-不管你多好 我还是感觉走错地方了,won ... [你强吻我 我不喜欢 我感觉走错地方了，你也没用！](https://twitter.com/realamberheard/status/856302872304037888#流氓) [-](https://jp.pinterest.com/pin/549931804481432130/)
+不管你多好 我还是感觉走错地方了,won ... [你强吻我 我不喜欢 我感觉走错地方了，你也没用！](https://twitter.com/realamberheard/status/856302872304037888#流氓) [-](https://www.pinterest.com/pin/549931804481432130/#来错地方了我就走)
 
 
