@@ -17,7 +17,7 @@ chain-承认自己来错了地方.md
 看它本身有错，但是因为‘给了我好处’ 所以 我就觉得它对
 ```
 
-[两个国家](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder.md)层面的来错了地方
+[两个国家](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder.md#‘让你相信你该有这些东西’的人的错；虚虚实实的夯实)层面的来错了地方
 
 [大陆模式](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder.md#想要啥东西,它没有,它不承认它没有。它在——瞎糊弄)
 
