@@ -20,3 +20,10 @@ chain-承认自己来错了地方.md
 [两个国家](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder.md)层面的来错了地方
 
 [大陆模式](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder.md#想要啥东西,它没有,它不承认它没有。它在——瞎糊弄)
+
+<br><br><br><br><br><br>
+
+
+人又出了什么看不懂的名词 -> light heart -> 哎呀赶进去查查看 <br>
+人又出了什么看不懂的名词 -> heavy heart -> (为什么人家玩文绉绉的词) 哎呀 人家就是玩[文绉绉](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-对文诌诌的词.md#为什么人家要用一个文绉绉的词)的 -> 开始往死里怼<br>
+人又出了什么看不懂的名词 -> light heart -> 哎呀 我又来错地方了，走就好了
