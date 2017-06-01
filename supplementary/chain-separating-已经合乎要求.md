@@ -1,7 +1,7 @@
 
 chain-separating-已经合乎要求.md
 
-分离出去的部分, 已经合乎要求 -> light heart -> 查漏补缺 -> 未来还有更多的事业,当前只是一小步 -> 未来快快来 -> 当前的 跟大牛走,弹性效果,当场弹性效果 -> 心情开心 -> keep things organize[d](#G-tidy-and-organized-G-tidiness-house), 超短期旅行 -> 脑力集中,睡觉休息
+分离出去的部分, 已经合乎要求 -> light heart -> 查漏补缺 -> 未来还有更多的事业,当前只是一小步 -> 未来快快来 -> 当前的 跟大牛走,弹性效果,当场弹性效果 -> 心情开心 -> keep things organize[d](#G-tidy-and-organized-G-tidiness-house), 超短期旅行, 固定取东西的地方就很少(根本就不会乱摆) -> 脑力集中,睡觉休息
 
 没有分离, 一上来新的 啥都不懂 -> heavy heart -> 感觉已有的部分都不行 -> 一大堆东西等着做 -> 未来还有更多的事业,当前只是一小步 -> 哎呀愁死啦 慢慢熬吧
 
