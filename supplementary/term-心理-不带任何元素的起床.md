@@ -15,6 +15,8 @@ term-心理-不带任何元素/杂念的起床.md
 
 <img src='http://i.imgur.com/5UlLQnB.jpg' width=20% />
 
+而且我的事都小小的 少少的, keep things organized 非常好
+
 = = =
 
 强迫自己什么都不想 -> 果然是怪异地起床 -> 起床
