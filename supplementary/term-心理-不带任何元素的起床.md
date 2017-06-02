@@ -19,6 +19,8 @@ term-心理-不带任何元素/杂念的起床.md
 
 `(不喜欢我的，就去死！！！hahahaha byebye! )`
 
+<img src='http://i.imgur.com/skFXig2.jpg' width=20% />
+
 = = =
 
 强迫自己什么都不想 -> 果然是怪异地起床 -> 起床
