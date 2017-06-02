@@ -22,3 +22,5 @@
 [MyWhiteNoice](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/local-MyWhiteNoice)
 
 [-](http://www.bilibili.com/video/av3436995#口琴)
+
+[-](http://www.magiquiz.com/quiz/how-kinky-are-you#心理测试)
