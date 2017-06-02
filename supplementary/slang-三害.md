@@ -30,4 +30,8 @@ more on hazardous:
 
 会看：知道人分赃不均都会打起来 (给人多多 给他人少少, 并期望他人们能和平共处 - 这种marketing就是一个trap) [-](https://twitter.com/anthonyVslater/status/870496531467522049)
 
+会看：人家都不是善茬(非富即贵 and 家里有背景) 所以防止* *上脑。看艳舞可以 那是来对了地方 [1](https://github.com/7900ms/github_channels/blob/master/seen.txt) [2](https://twitter.com/renfanzi/status/869393190066847745) [3](https://www.v2ex.com/notes/28476) [more](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-工作-职业评估.md#警惕大家都非富即贵，人精中的人精)
+
+
+
 -
