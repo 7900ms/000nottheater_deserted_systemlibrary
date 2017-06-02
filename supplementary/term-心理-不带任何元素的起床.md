@@ -15,7 +15,7 @@ term-心理-不带任何元素/杂念的起床.md
 
 <img src='http://i.imgur.com/5UlLQnB.jpg' width=20% />
 
-<sub>而且我的事都小小的 少少的 只有几个点 只有几个取东西的地方, keep things organized 非常好 (都符合给我感觉 简单+经常+对自己，有力 + 反应快 + 有重点) <br> 可以其他玩意不要。(都是marketing,都是不需要的，我超短期旅行呢) </sub>
+<sub>而且我的事都小小的 少少的 只有几个点 只有几个取东西的地方, keep things organized 非常好 (都符合给我感觉 简单+经常+对自己，有力 + 反应快 + 有重点) <br> 可以其他玩意不要。(都是marketing,都是不需要的 谁爱要谁要，我超短期旅行呢) </sub>
 
 
 = = =
