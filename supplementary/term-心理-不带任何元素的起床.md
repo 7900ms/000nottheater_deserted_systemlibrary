@@ -15,7 +15,7 @@ term-心理-不带任何元素/杂念的起床.md
 
 <img src='http://i.imgur.com/5UlLQnB.jpg' width=20% />
 
-而且我的事都小小的 少少的, keep things organized 非常好
+而且我的事都小小的 少少的 只有几个点 只有几个取东西的地方, keep things organized 非常好
 
 = = =
 
