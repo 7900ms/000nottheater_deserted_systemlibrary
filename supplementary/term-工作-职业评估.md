@@ -131,7 +131,7 @@ more on work
 
 情感：keep things organized 仅要很少东西 东西不乱放 [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-separating-已经合乎要求.md#light-heart)
 
-跟大牛走：给有人带的专事立项,跟大牛走 吃香喝辣，弹性效果，当场弹性效果。跟上人家不被[嫌弃](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-不带任何元素的起床.md)
+跟大牛走：给有人带的专事立项, 超有感 跟大牛走 吃香喝辣，弹性效果，当场弹性效果。跟上人家不被[嫌弃](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-不带任何元素的起床.md)
 
 警惕：大家都非富即贵，人精中的人精 超短途旅行自保为主 [-](https://www.v2ex.com/notes/28476#周围人的竞竞争争) [-](https://twitter.com/renfanzi/status/869393190066847745)
 
