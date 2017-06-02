@@ -23,3 +23,11 @@
 - 我走错地方了，那我就走好了，大方承认自己会有[更好的地方](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder-你可能来错地方了.md)等着我，我可以先离开这里 (如果的确好 我还可以回来)
 - 他走错地方了，那他会自己走的
 - 永远不假设人人都该认同我，永远不假设 “每个人都走对了地方” ，永远知道人是会犯迷糊了走错地方了 (迷途的羔羊)
+
+= = =
+
+more on hazardous:
+
+会看：知道人分赃不均都会打起来
+
+-
