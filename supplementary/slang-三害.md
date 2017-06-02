@@ -28,6 +28,6 @@
 
 more on hazardous:
 
-会看：知道人分赃不均都会打起来
+会看：知道人分赃不均都会打起来 (给人多多 给他人少少, 并期望他人们能和平共处 - 这种marketing就是一个trap) [-](https://twitter.com/anthonyVslater/status/870496531467522049)
 
 -
