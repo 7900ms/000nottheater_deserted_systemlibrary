@@ -131,6 +131,7 @@ more on work
 
 情感：keep things organized 仅要很少东西 东西不乱放 [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-separating-已经合乎要求.md#light-heart)
 
+跟大牛走：给有人带的专事立项,跟大牛走 吃香喝辣，弹性效果，当场弹性效果
 
 
 -
