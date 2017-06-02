@@ -28,11 +28,11 @@
 
 more on hazardous:
 
-会看：知道人分赃不均都会打起来 (给人多多 给他人少少, 并期望他人们能和平共处 - 这种marketing就是一个trap) [-](https://twitter.com/anthonyVslater/status/870496531467522049)
+会看：知道人分赃不均都会打起来 (给人多多 给他人少少, 并期望他人们能和平共处 - 这种marketing就是一个trap) [-](https://twitter.com/anthonyVslater/status/870496531467522049) [-](https://twitter.com/Tweezaintshitt/status/870505331683606530)
 
 会看：人家都不是善茬(非富即贵 and 家里有背景 and 来头很大) 所以防止* *上脑。看艳舞可以 那是来对了地方 [1](https://github.com/7900ms/github_channels/blob/master/seen.txt) [2](https://twitter.com/renfanzi/status/869393190066847745) [3](https://www.v2ex.com/notes/28476) [more](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-工作-职业评估.md#警惕大家都非富即贵，人精中的人精)
 
-恶心：不隔离本来就是不行的，小事放大的过大本来就是不行的 给陪审团不说实话也是不行的 用小智慧躲避大矛盾是不行[的](https://twitter.com/renfanzi/status/866930793750212608#不懂人权,又自愿接受你们自己人杀自己人的文化)，我只能说我走错地方了，会有更好的地方在等我。跟好人队从众，在坏人队里特立独行-避开。(限制: 能承认自己来错地方了,走就好了 <- 分隔隔离, 超短期旅行，总之 限制在很小的范围里)
+恶心：不隔离本来就是不行的，小事放大的过大本来就是不行的 给陪审团不说实话也是不行的 用小智慧躲避大矛盾是不行[的](https://twitter.com/renfanzi/status/866930793750212608#不懂人权,又自愿接受你们自己人杀自己人的文化)，我只能说我走错地方了，会有更好的地方在等我。跟好人队从众，在坏人队里特立独行-避开。(限制: 能承认自己来错地方了,走就好了 <- 分隔隔离, 超短期旅行，总之 限制在很小的范围里) [it helps u -](https://twitter.com/Tweezaintshitt/status/869912067041402880)
 
 
 
