@@ -1,5 +1,5 @@
 
-(防止用错误的方式(坏原因 假感觉)摆脱无聊的感觉)
+( 防止用错误的方式(坏原因 假感觉)摆脱无聊的感觉 )( 自知不是所有人都这样, 不假设所有人都认同我, 承认我来错地方了 那我就走就好了 [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder-你可能来错地方了.md) )
 
 chain-意图-自我局限在小圈子
 
