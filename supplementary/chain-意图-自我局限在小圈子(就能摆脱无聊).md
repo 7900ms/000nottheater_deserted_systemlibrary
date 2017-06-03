@@ -1,7 +1,7 @@
 
 ( 防止用错误的方式(坏原因 假感觉)摆脱无聊的感觉 )( 自知不是所有人都这样, 不假设所有人都认同我, 承认我来错地方了 那我就走就好了 [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder-你可能来错地方了.md) )
 
-chain-意图-自我局限在小圈子
+chain-意图-自我局限在小圈子 `磕自己`
 
 context: 可能会无聊/迷茫 (即使有知道 别人看的东西 我本来就不需要 - 我看侦探游记 就好了。知道要 keep things organized 但又觉得有点儿无聊)
 
