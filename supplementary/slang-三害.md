@@ -40,6 +40,8 @@ more on hazardous:
 
 会走：楼梯 不是如何罪大恶极 也不用把遇见一个人的罪恶扩大化到整个人类，而是 真的很反感 是真的 - 仅由谁引起[就是谁,不用扩大化](#不要说所有的夫妻都是这个样子。你们对待彼此的恶毒程度已经够离婚一千回了)，我来错地方了我就走 [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-lightshelf/楼梯.md)
 
+会走：独立做事是有文章背景 context 做事，因为有 context 所以能自己判断，因为会找 context 所以简单的事有自己想法
+
 
 
 -
