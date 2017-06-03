@@ -12,7 +12,7 @@
 三害：
 - 有毒的人: [怪人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-对文诌诌的词.md#为什么人家要用一个文绉绉的词) [有毒的人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/slang-FUD.md#这个人有毒!) [“帮助”人的人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-call.md)
 - [互相比拼谁更文绉绉吗](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/small/正当防卫.md#文字是无力的。文绉绉是华而不实的污物是三害之一，我也不学它。别人看的东西,我不需要看,我只看侦探游记)
-- [华而不实的污物](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md#华而不实的污物)
+- [华而不实的污物](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-躲避后-侦探游记.md#华而不实的污物-eg广告抬杠自说自话marketing)
 
 怎么防：
 - 不去上来就看他的具体内容，而是 用心感觉
