@@ -28,7 +28,7 @@ chain-意图-毒狼.md
 
 = = =
 
-我可能走错地方了,走就好了
+我可能走错地方了,走就好了 [楼梯](https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-lightshelf/楼梯.md)
 
 感觉就是毒，躲开了的毒汁：
 
