@@ -30,7 +30,7 @@ chain-意图-毒狼.md
 
 我可能走错地方了,走就好了
 
-躲开了的毒汁：
+感觉就是毒，躲开了的毒汁：
 
 [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/slang-FUD.md#有毒的人)
 [2](https://www.youtube.com/watch?v=cfjjmUtt4Jc#在专制制度下,计天下,记苍生,往往有毒)
