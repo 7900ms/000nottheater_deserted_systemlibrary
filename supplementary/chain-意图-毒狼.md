@@ -25,3 +25,14 @@ chain-意图-毒狼.md
 - 首先我不会强迫你做任何事。我会告诉你我想做什么 如果你不想那么 OK ，我不会强迫你做。如果你想了 但做的中间又不想了 可以提出来没关系 我不会强迫你做。如果你对我做的事 有什么不满意的地方 可以提出来 我可以改进。当然我的 skill 你想尝试就可以尝试，我也不会藏着掖着。
 
 
+
+= = =
+
+我可能走错地方了,走就好了
+
+躲开了的毒汁：
+
+[1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/slang-FUD.md#有毒的人)
+[2](https://www.youtube.com/watch?v=cfjjmUtt4Jc#在专制制度下,计天下,记苍生,往往有毒)
+
+-
