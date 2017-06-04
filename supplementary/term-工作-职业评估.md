@@ -135,4 +135,6 @@ more on work
 
 警惕：大家都非富即贵，人精中的人精 可能大有来头 超短途旅行自保为主 [-](https://www.v2ex.com/notes/28476#周围人的竞竞争争) [-](https://twitter.com/renfanzi/status/869393190066847745) [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder.md#精神自保)
 
+警惕：接受正规的套路 (别坏人队里呆太久了, 都不知道啥是好了) [-](https://www.v2ex.com/t/362522#reply38#这是标准的负责任的上司做法)
+
 -
