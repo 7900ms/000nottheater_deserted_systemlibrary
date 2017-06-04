@@ -45,10 +45,18 @@ CentOS6 和 7 该如何选择？
 - 精益求精之不求人 (能自家解决就不用外人帮忙)
 - 精益求精之整齐 (能整齐不碍眼的摆放的 就不乱放碍眼炸过一样)
 
-燃起兴致： (以皮肤光滑为例)
+燃起兴致： (以皮肤光滑为例) [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/physical-skinny)
 - 精益求精之简单+有效 (要求皮肤光滑就要皮肤光滑,而且是用简单办法，就不粗糙呆着or特累的护肤)
 
-燃起兴致： (以增长肌肉为例)
+燃起兴致： (以增长肌肉为例) [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/physical-physique)
 - 精益求精之简单+有效 (要求增长肌肉就增长肌肉，就不弱鸡呆着or特累的办法，还没效果。原理：破坏肌肉+增长肌肉)
+
+燃起兴致： (以修电脑为例) [-]()
+- 精益求精之简单+有效 (要求电脑修好 且不造成其他问题，隔离开来 能检测。原理：隔离开)
+
+燃起兴致： (以朗读为例) [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/physical-tender)
+- 精益求精之简单+有效 (要求读得好 且不造成其他问题，隔离开来 这一个事能快速回看。原理：一次只做一个事)
+- 精益求精之整齐 (所有篇章，要求都是一样的 不需要有新的要求，就不情绪化。原理：弹性效果,当场弹性效果)
+
 
 
