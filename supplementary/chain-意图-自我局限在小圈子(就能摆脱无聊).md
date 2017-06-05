@@ -46,6 +46,7 @@ CentOS6 和 7 该如何选择？
 - 精益求精之整齐 (能整齐不碍眼的摆放的 就不乱放碍眼炸过一样)
 - 精益求精之不要任何多余的步骤 (每一步都有感觉有意义 就不用走多余步骤)
 - 精益求精之不要拖泥带水[-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-鼓儿-不要拖泥带水.md#我的生活里没有你的位置)
+- 精益求精之省钱和赚钱 [-](#谈到钱,人们的智商立刻上升到145的警觉起来###当人们看着媒体上的你，智商当时可能为零；但是，一旦你试图从他们口袋里掏点钱出来的时候，他们的智商瞬间就是145，而且相当挑剔刻薄)
 
 燃起兴致： (以皮肤光滑为例) [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/physical-skinny)
 - 精益求精之简单+有效 (要求皮肤光滑就要皮肤光滑,而且是用简单办法，就不粗糙呆着or特累的护肤)
