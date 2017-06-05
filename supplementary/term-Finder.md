@@ -45,7 +45,7 @@ Finder
 
 不是小粉红的女生，可能在哪。虽然没有表现，但是 她们会积极参与各种西方社会的活动。注意：一般人不会暴露自己的政治观念，所以在海外学生中“成立有某种政治观念的群组”是没有用的。
 
-如果我被动，那么按照“外海留学生的平均素质”来看，一般人都会被小粉红包围的。所以！我必须有所防范。主动在于 先发制人。可以有自己的“[轨道](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/tram-顺当立的.md)”，而不和 有毒的人 拼拼凑凑的。否则，后果就是 任何权力真空都会被填补 而超出自己的掌控
+如果我被动，那么按照“外海留学生的平均素质”来看，一般人都会被小粉红包围的。所以！我必须有所防范。主动在于 先发制人。可以有自己的“[轨道](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/tram-顺当立的.md)”，而不和 有毒的人 拼拼凑凑的。否则，后果就是 任何权力真空都会被填补 而超出自己的掌控 超出精益求精好状态的掌控[-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-意图-自我局限在小圈子(就能摆脱无聊).md)，最终是冲你钱来的 [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-意图-攥紧钱.md)
 
 
 -
