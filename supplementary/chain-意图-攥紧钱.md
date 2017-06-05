@@ -8,7 +8,7 @@ chain-意图-攥紧钱.md
 - 几大原则 (爱情 学业 霸业, 做难的事 寻找同类 寻找自己, 唯一原则-具体事情具体分析, 由头-真实惠 成熟的性格 知道男人女人两人怎么舒服 走向盛宴，由头-真实惠-条件限制-看(先)做什么) 是不是为了“落于不败之地”，而是 几乎概括了可能发生的所有情况[，](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/travelwriting/small/4.md)继而不慌张，能更冷静地/表现得很好地谋取自己的实惠 - 而不是因为慌张或错误的判断丢钱。
 - 调整心情 (躲开有毒的人，好人队里从众 坏人队里特立独行-躲开，躲开三害与毒狼，有对的融入-以融入何处融入，九宫格调整心情 在小世界里挺好的-侦探游记) 是有更好的状态去更好表现，最终会导致赚钱 [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/travelwriting/small/5.md)
 - 检测时间花销 (犒劳人值得，学业匹配的座位, 学业匹配的站位，physical-skinny) 是有更好的状态(不瞎耗着)去赚钱 [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-call.md)
-- 各种技巧 (隔离,承认自己走错地方了) 是为了更好的状态(不埋雷)去赚钱
+- 各种技巧 (隔离,不拖泥带水,拳击教练,怼掉文绉绉,承认自己走错地方了) 是为了更好的状态(不埋雷)去赚钱
 
 life is so simple.
 
