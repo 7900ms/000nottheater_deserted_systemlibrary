@@ -12,7 +12,7 @@ smart = know what gonna happen
 - 客观的硬件
 - 利害关系 (简单+经常+对自己)
 
-判断会发生什么 (and clam and not-do-overthink-do-improvise)
+判断会发生什么 (and clam and not-do-overthink([过度解读](http://www.ftchinese.com/story/001072632?full=y#高估了特朗普#高估))-do-improvise)
 
 not smart: not know what gonna happen so acting like stupid [-](https://twitter.com/ComplexSports/status/871565080298749952)
 
