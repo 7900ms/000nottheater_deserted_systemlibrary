@@ -18,4 +18,4 @@ not smart: not know what gonna happen so acting like stupid [-](https://twitter.
 
 训练：
 - 任何事都带脑子做 (not feel smart? then don't start it)
-- 不去干太多不需要smart的事，去干一些需要smart的事(u must know what gonna happen, then u can do it)(比如下棋, 演奏, 做题)
+- 去干一些典型需要smart的事 找感觉 (u must know what gonna happen, then u can do it)(比如下棋, 演奏, 做题, 数独 - smart之感觉呼之欲出)
