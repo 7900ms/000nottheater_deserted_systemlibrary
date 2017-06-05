@@ -10,7 +10,7 @@ chain-意图-攥紧钱.md
 - 检测时间花销 (犒劳人值得，学业匹配的座位, 学业匹配的站位，physical-skinny) 是有更好的状态(不瞎耗着)去赚钱 [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-call.md)
 - 各种技巧 (隔离,不拖泥带水,拳击教练,看懂文绉绉,承认自己走错地方了。隔离,分账户,分邮箱,超短期旅途等后勤) 是为了更好的状态(不埋雷)去赚钱
 
-life is so simple.
+life is so simple[.](https://twitter.com/ComplexSports/status/871565080298749952#(im-aware-but-sbdy-else...stupid-questions-one-by-one)are-u-a-smart-guy---so-if-we-dont-defend-homecourt-what-happened)
 
 涉及到钱 就会很冷静 就会有对的感觉(简单+经常+对自己，有力 + 反应快 + 有重点[)，](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/local-lightshelf) <br>
 富得流油 啥都不缺 就会不冷静，不差钱的人 更是傻。 <br>
