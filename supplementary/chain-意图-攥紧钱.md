@@ -16,7 +16,7 @@ life is so simple.
 富得流油 啥都不缺 就会不冷静，不差钱的人 更是傻。 <br>
 积攒有助于赚钱的素质 就会很冷静 (包括我躲开的红色背景人士 也是为了我用更好的状态(顺畅通道)去赚钱 对人寄予匹配的方式(不仁慈犯傻)) 。 [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder.md) <br>
 积攒有助于赚钱的素质 就会计长远 (我的九宫格核心不破，第三种爱情 学业 霸业 做难的事 寻找同类 寻找自己 唯一原则 由头-真实惠-条件限制-看(先)做什么 成熟的性格 走向盛宴 承认自己走错地方 楼梯)。 [1](https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-lightshelf/楼梯.md)<br>
-积攒有助于赚钱的素质 就会很好的评估 轻重缓急(九宫格) 真正的安全与风险(在甲方角度，甲方（用户、钱），为了而不是图占便宜) [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder.md#我给老板算账的)
+积攒有助于赚钱的素质 就会很好的评估 轻重缓急(九宫格) 真正的安全与风险(在甲方角度，甲方（用户、钱），为了而不是图占便宜 更根本不会听营销家的) [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder.md#我给老板算账的)
 
 
 = = =
