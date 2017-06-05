@@ -9,7 +9,7 @@ chain-意图-攥紧钱.md
 - 调整心情 (躲开有毒的人，好人队里从众 坏人队里特立独行-躲开，躲开三害与毒狼，有对的融入-以融入何处融入，九宫格调整心情 在小世界里挺好的-侦探游记) 是有更好的状态去更好表现，最终会导致赚钱 [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/travelwriting/small/5.md)
 - 检测时间花销 (犒劳人值得，学业匹配的座位, 学业匹配的站位，physical-skinny) 是有更好的状态(不瞎耗着)去赚钱 [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-call.md)
 - 各种技巧 (隔离,不拖泥带水,拳击教练,看懂文绉绉,承认自己走错地方了。隔离,分账户,分邮箱,超短期旅行等后勤) 是为了更好的状态(不埋雷)去赚钱
-- 和钱相关的部分,保留对人的信任 (和钱相关的部分 都门儿清, 不会想着啊自己请人做事 花了钱haoxiang就是别人的事情了)
+- 和钱相关的部分,保留对人的信任 (和钱相关的部分 都门儿清, 不会想着啊自己请人做事 花了钱haoxiang就是别人的事情了，寻权威 求清楚，求保障求安全求稳妥)
 
 life is so simple[.](https://twitter.com/ComplexSports/status/871565080298749952#(im-aware-but-sbdy-else...stupid-questions-one-by-one)are-u-a-smart-guy---so-if-we-dont-defend-homecourt-what-happened)
 
