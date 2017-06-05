@@ -10,8 +10,8 @@ chain-意图-攥紧钱.md
 - 检测时间花销 (犒劳人值得，学业匹配的座位, 学业匹配的站位，physical-skinny) 是有更好的状态(不瞎耗着)去赚钱 [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-call.md)
 - 各种技巧 (隔离,不拖泥带水,拳击教练,看懂文绉绉,承认自己走错地方了。隔离,分账户,分邮箱,超短期旅行等后勤) 是为了更好的状态(不埋雷)去赚钱
 -
-- 自己感觉到了：攥不紧钱,钱会怎样 ？ (感觉觉得自己的财务方面会特别脆弱(他人会来图财),所以更加小心呵护这部份)
-- - 攥不紧钱,钱就飞啦
+- 自己感觉到了：攥不紧钱,钱会怎样？ (感觉觉得自己的财务方面会特别脆弱(他人会来图财),所以更加小心呵护这部份)
+- - 攥不紧钱,钱会怎样[？](#攥不紧钱,乱花钱,钱就飞啦,钱就被别人图走啦)
 - - 和钱相关的部分,最后的后果是自己的自负,所以保留对人的信任 (和钱相关的部分 都门儿清, 不会想着啊自己请人做事 花了钱haoxiang就是别人的事情了，寻权威 求清楚，求保障求安全求稳妥。和钱相关的部分,不稳妥就换,请人做事感觉不稳妥就换人-同时自己顾着 被蒙了的后果全自负)
 
 life is so simple[.](https://twitter.com/ComplexSports/status/871565080298749952#(im-aware-but-sbdy-else...stupid-questions-one-by-one)are-u-a-smart-guy---so-if-we-dont-defend-homecourt-what-happened)
