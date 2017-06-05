@@ -16,4 +16,6 @@ smart = know what gonna happen
 
 not smart: not know what gonna happen so acting like stupid [-](https://twitter.com/ComplexSports/status/871565080298749952)
 
-训练：不去干太多不需要smart的事，去干一些需要smart的事(u must know what gonna happen, then u can do it)(比如下棋, 演奏, 做题)
+训练：
+- 任何事都带脑子做 (not feel smart? then don't start it)
+- 不去干太多不需要smart的事，去干一些需要smart的事(u must know what gonna happen, then u can do it)(比如下棋, 演奏, 做题)
