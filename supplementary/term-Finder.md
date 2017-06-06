@@ -285,6 +285,8 @@ G 🇺🇸, [May 26, 2017, 8:53 PM]:
 海外华人可是 ... 小粉红很多的, 必须有所防范
 
 [-](http://weibo.com/2280373443/F6ofBekxD#这篇全面展示了你匪是如何通过商业投资，飞碟和留学生在澳洲输出审查和监视。定点监控，威胁家人，组织活动等手段层出不穷。你匪对澳洲的渗透，无论规模还是力度上，都远远大于任何一个美欧国家。所以土澳安全情报局，再不留意，你们国家就被渗透成筛子啦)
-[-](http://www.smh.com.au/interactive/2017/chinas-operation-australia/soft-power.html)
+[-](http://www.smh.com.au/interactive/2017/chinas-operation-australia/soft-power.html) [-](https://twitter.com/smh/status/871690613539962880#hard-power)
 [chain-意图-攥紧钱.md](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-意图-攥紧钱.md)
+
+[-](https://twitter.com/xblylgsm/status/871570965926367233#海外学联) [+](https://twitter.com/badiucao/status/871899899306143744#澳洲渗透) [+](https://twitter.com/SimbaHoo/status/871533245745070080#纪念六四讲话一) [+](https://twitter.com/iingwen/status/871186268964528129#纪念六四讲话二)
 
