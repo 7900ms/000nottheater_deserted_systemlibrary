@@ -33,6 +33,6 @@ chain-意图-毒狼.md
 [感觉](https://ruby-china.org/notes/4055)就是毒([坏人队](https://www.v2ex.com/notes/28139#杜兰特))，躲开了的毒汁：
 
 [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/slang-FUD.md#有毒的人)
-[2](https://www.youtube.com/watch?v=cfjjmUtt4Jc#在专制制度下,计天下,记苍生,往往有毒)
+[2](https://www.youtube.com/watch?v=cfjjmUtt4Jc#和珅有毒在专制制度下,计天下,记苍生,往往有毒) [-](https://twitter.com/xblylgsm/status/871570965926367233#渗透-海外学联)
 
 -
