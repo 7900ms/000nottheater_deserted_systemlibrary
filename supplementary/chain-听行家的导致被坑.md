@@ -1,5 +1,5 @@
 
-(常识：卖伞的盼下雨，找卖伞的听天气预报？)
+(打火机-常识：卖伞的盼下雨，找卖伞的听天气预报？)
 
 听一个行家的反而会被坑，为什么？ 一个让人感受到[残酷性](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/small)的地方，躲远点儿[为好](#卖伞的盼下雨，找卖伞的听天气预报？)
 
