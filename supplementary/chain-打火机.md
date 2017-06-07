@@ -131,7 +131,12 @@ narrowing
 容易受到攻击：过程、形象。不容易受到攻击：结果。
 
 ```
-narrowing
+narrowin[g](https://twitter.com/dloadinghive/status/870004817111994368#攻心-外国-直接直白一脸正气攻心)
+[-](https://twitter.com/SInow/status/872130449446981632#外国-直接直白一脸讪笑攻心-lbj)
+[-](https://twitter.com/SInow/status/872145060191760384#外国-直接直白一脸讪笑攻心-draymond)
+[-](https://twitter.com/BestTweet2017/status/872410975864995841#外国-直接直白一脸讪笑攻心)
+[-](https://twitter.com/SInow/status/872152257902596098#外国-直白直接)
+[-](https://twitter.com/SInow/status/872152213107486722#外国-直白直接)
 ```
 最恶劣的情况会直接攻心。容易受到攻击：过程、形象
 在最恶劣的状况：这种攻击是真实存在而十分干扰打火机打火的，最好避免掉 - 即想好怎么应对这种最恶劣最有毒的状况，在打火机点火时
