@@ -53,3 +53,57 @@
 
 劲儿 -> Y(觉得没劲儿也挺好) -> 计划的劲儿 -> Y(没觉得[physical-skinny](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/physical-skinny)有必要,没觉得周围[太闹腾](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/travelwriting/small/5.md)课程表有必要) -> 执行计划的劲儿 -> Y(没看见别人是怎么有捍卫力的,怎算严肃对待的:不是享受 不是放纵 而是捍卫, 这种思想状态。[攥紧](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-意图-攥紧钱.md),捍卫,[严肃对待](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-严肃对待.md)) -> 执行计划 -> Y(没有个人素质) -> 计划波动 -> Y(没有课程表,[打火机](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-严肃对待.md)点火了还一直烧着)
 
+
+
+= = =
+
+# 打火机的选择
+
+## 1
+
+[chain-separating-已经合乎要求](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-separating-已经合乎要求.md)
+
+## 2
+
+先不看怎么是好的。先看看他们都是怎样的。
+翻译家， spiritual animal (能想到的很棒的打火机)
+
+```
+翻译家像猫
+spiritual animal 像狗
+
+翻译家太远大了，很鼓励的感觉 我要像谁谁一样，夺冠军，想要冠军的女人 那么去做冠军就可以了
+spiritual animal 即刻启动
+
+翻译家 仅做打火机，否则 一直点着会失去耐心
+spiritual animal 即刻启动，就是一只狗
+
+翻译家 仅做打火机，否则 一直点着会失去耐心 - 人格化的东西，会在 “打火机” 和 “正常燃烧” 之间起冲突 (都是人的行为 为啥不能一人搞定 - 那这个人的功能是固定的, 给不同的人买不同的账)
+spiritual animal 即刻启动，就是一只狗 (本来就应该 给不同的人 买不同的账)
+
+翻译家 适应性较差，不是人人都喜欢的。有时候会拒绝一些目的
+spiritual animal 适应性较好，人人都喜欢
+
+有可能，只要形成意向，就会“暴露” (无论是 翻译家 or sa) 就会
+去想赢得人们
+不去想赢得人们
+去被marketing
+不去被marketing
+
+有可能，只要形成意向，那么基于这个打火机的火焰 就会
+知道该怎么做 来符合这个“形象”
+知道不做什么 来符合这个“形象”
+
+有可能，只要形成意向，一旦暴露就 就会受到攻击
+有可能，只要形成意向，一旦形象 就会有可说道的东西 等于就会受到攻击 (在夺冠之前最好不要说自己要夺冠)
+
+```
+
+## 3
+
+踏踏实实做的，先 13-0 从没想过 14-0
+
+
+# 打火机的选择 - 严肃态度
+
+
