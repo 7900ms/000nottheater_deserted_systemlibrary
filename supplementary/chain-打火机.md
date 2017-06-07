@@ -194,7 +194,7 @@ to get high
 
 ## 2 恶劣状态下也
 
-no human involved. no 过程、形象 involved. 
+no human involved. no 过程、形象 involved[.](http://w/#没有受到攻击哦耶)
 
 ## 3
 
