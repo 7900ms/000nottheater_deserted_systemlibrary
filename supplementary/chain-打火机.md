@@ -71,6 +71,8 @@
 
 [chain-separating-已经合乎要求](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-separating-已经合乎要求.md)
 
+分离出去的部分, 已经合乎要求 -> light heart -> 查漏补缺 -> 未来还有更多的事业,当前只是一小步 -> 未来快快来
+
 ## 2
 
 先不看怎么是好的。先看看他们都是怎样的。
@@ -110,6 +112,7 @@ spiritual animal 适应性较好，人人都喜欢
 ## 3
 
 踏踏实实做的，先 13-0 从没想过 14-0
+
 
 
 # 打火机的选择 - 严肃态度
