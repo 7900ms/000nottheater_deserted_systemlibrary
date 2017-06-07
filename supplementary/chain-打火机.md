@@ -59,6 +59,14 @@
 
 # 打火机的选择
 
+## 思想状态
+
+不是享受 不是放纵 而是捍卫, 这种思想状态
+
+当人们看着媒体上的你，智商当时可能为零；但是，一旦你试图从他们口袋里掏点钱出来的时候，他们的智商瞬间就是145，而且相当挑剔刻薄
+
+商店里 挑出 一个东西来，就是严肃对待啊 (看也不看就自己吃了,就不是严肃对待)。挑出 一些人，不断用笑 来 确认 这些人的感觉，就是严肃对待啊
+
 ## 1
 
 [chain-separating-已经合乎要求](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-separating-已经合乎要求.md)
