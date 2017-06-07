@@ -155,7 +155,7 @@ narrowin[g](https://twitter.com/dloadinghive/status/870004817111994368#攻心-�
 
 ## 3
 
-踏踏实实做的，先 13-0 从没想过 14-0 (多做少说且[啥都不说了就被承认了](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-工作-职业评估.md#做的事立刻得到别人承认))
+踏踏实实做的，先 13-0 从没想过 14-0 (多做少说且[啥都不说了就被承认了](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-工作-职业评估.md#做的事立刻得到别人承认)[)](https://twitter.com/SportsCenter/status/872173992249044994)
 
 不是享受 不是放纵 而是捍卫, 这种思想状态<br>
 有打火机,打着火,开车稳走,熄火停车,再打着火再开<br>
