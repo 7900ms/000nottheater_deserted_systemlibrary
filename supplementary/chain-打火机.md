@@ -145,9 +145,7 @@ narrowing
 
 ## 3
 
-踏踏实实做的，先 13-0 从没想过 14-0
-
-多做少说且[啥都不说了就被承认了](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-工作-职业评估.md#做的事立刻得到别人承认)
+踏踏实实做的，先 13-0 从没想过 14-0 (多做少说且[啥都不说了就被承认了](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-工作-职业评估.md#做的事立刻得到别人承认))
 
 打火机：不是过程、形象，是结果<br>
 火燃烧着<br>
