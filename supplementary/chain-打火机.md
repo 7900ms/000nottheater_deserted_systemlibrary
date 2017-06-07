@@ -198,7 +198,7 @@ no human involved. no 过程、形象 involved[.](http://w/#没有受到攻击�
 
 ## 3
 
-simple
+simple[.](http://w/#躲开了有毒的哦耶--叫人用"过程or形象"作为打火机，是有毒的)
 
 人体每天都睡觉，每天都要点火
 
