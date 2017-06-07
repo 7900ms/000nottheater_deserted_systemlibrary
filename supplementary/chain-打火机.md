@@ -168,7 +168,11 @@ to get high
 
 no human involved. no 过程、形象 involved. 
 
+## 3
 
+simple
+
+人体每天都睡觉，每天都要点火
 
 
 
