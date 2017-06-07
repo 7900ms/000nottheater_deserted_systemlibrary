@@ -135,7 +135,7 @@ narrowing
 在最恶劣的状况：这种攻击是真实存在而十分干扰打火机打火的，最好避免掉 - 即想好怎么应对这种最恶劣最有毒的状况，在打火机点火时
 
 不那么恶劣的情况，可以讲 过程、形象、结果、结果 and pretend like what happened not a big deal happened
-恶劣的情况，可以讲 过程(被攻击)、形象(被攻击,攻心 - 大陆-文绉绉还想让人听不出来 外国-直接直白一脸正气攻心)、结果(不被攻击)、结果 and pretend like what happened not a big deal happened (不被攻击)
+恶劣的情况，可以讲 过程(被攻击)、形象(被攻击,攻心 - 大陆-文绉绉还想让人听不出来 外国-直接直白一脸正气攻心就是搞你)、结果(不被攻击)、结果 and pretend like what happened not a big deal happened (不被攻击)
 ```
 narrowing
 ```
