@@ -137,6 +137,11 @@ narrowing
 不那么恶劣的情况，可以讲 过程、形象、结果、结果 and pretend like what happened not a big deal happened
 恶劣的情况，可以讲 过程(被攻击)、形象(被攻击,攻心 - 文绉绉还想让人听不出来)、结果(不被攻击)、结果 and pretend like what happened not a big deal happened (不被攻击)
 ```
+narrowing
+```
+不是享受 不是放纵 而是捍卫, 这种思想状态 是立着的,不是趴着的 -> 有可能，只要形成意向，一旦暴露就 就会受到攻击 -> 过程、形象、结果 可能受到攻击
+有(无声的)思想状态 而不受到攻击 同时也不想要被赞扬或支持或声援(因为没受到攻击,安全🔐)
+```
 
 ## 3
 
