@@ -158,4 +158,17 @@ narrowing
 
 # 打火机的选择 - 严肃态度
 
+## 1
+
+to get high
+
+不是享受 不是放纵 而是捍卫, 这种思想状态 + (在夺冠之前最好不要说自己要夺冠)
+
+## 2
+
+no human involved. no 过程、形象 involved. 
+
+
+
+
 
