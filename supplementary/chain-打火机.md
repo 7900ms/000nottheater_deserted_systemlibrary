@@ -149,10 +149,10 @@ narrowing
 
 多做少说且[啥都不说了就被承认了](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-工作-职业评估.md#做的事立刻得到别人承认)
 
-打火机：不是过程、形象，是结果
-火燃烧着
-火熄灭了
-第二天 打火机再来
+打火机：不是过程、形象，是结果<br>
+火燃烧着<br>
+火熄灭了<br>
+第二天 打火机再来<br>
 
 火没烧起来时，不能没有打火机；火烧起来之后，打火机关了就行。但不能扔了打火机啊，下次还得点啊 [————](https://twitter.com/RTNBA/status/872111336637034500) 火灭了，打火机来点火。人体每天都睡觉，每天都要点火 [-](https://twitter.com/lanselau/status/872110110235144192#十点一刻但是我还没完全醒来)
 
