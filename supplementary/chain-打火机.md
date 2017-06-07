@@ -167,7 +167,7 @@ narrowing
 
 ## 1
 
-to get high
+with low key, to get high
 
 不是享受 不是放纵 而是捍卫, 这种思想状态 + (在夺冠之前最好不要说自己要夺冠) 不动声色
 
