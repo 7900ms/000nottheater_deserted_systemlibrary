@@ -147,6 +147,8 @@ narrowing
 
 踏踏实实做的，先 13-0 从没想过 14-0 (多做少说且[啥都不说了就被承认了](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-工作-职业评估.md#做的事立刻得到别人承认))
 
+不是享受 不是放纵 而是捍卫, 这种思想状态<br>
+有打火机,打着火,开车稳走,熄火停车,再打着火再开<br>
 打火机：不是过程、形象[，](http://#有可能，只要形成意向，一旦暴露就-就会受到攻击)是结果<br>
 火燃烧着<br>
 火熄灭了<br>
