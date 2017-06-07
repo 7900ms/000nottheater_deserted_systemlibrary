@@ -46,5 +46,7 @@ more on hazardous:
 
 会看：防止用错误的方式(坏理由 假感觉)摆脱无聊的感觉 [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-意图-自我局限在小圈子(就能摆脱无聊).md)
 
+会看：防止用错误的东西(真实的感觉-过程,形象)去作打火机 [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-打火机.md#叫人用-过程or形象-作为打火机，是有毒的)
+
 
 -
