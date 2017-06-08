@@ -1,7 +1,7 @@
 
 (选择：鉴于 “有可能，只要形成意向，一旦暴露就 就会受到攻击” ，那么 最终落到 东西vs我 。很小的二人范围。<br>
        说明：东西是`干嘛的`东西，不带任何象征意义(东西是什么东西? ohh it begin marketing, involved salesmen, so dont do that.)。<br>
-       about it, I dont give a shit. DONE ) (+最好跟一些这样 的人 在一起呆着。不要[可怜的](https://twitter.com/Ramboy85/status/871522198627811328) ( 可怜者会诈唬 可怜者会被激着 可怜者会salty而[不自知](https://twitter.com/fillinthablankk/status/871555209809580033#all-these-flavors-u-choose-to-be-salty#输了都输了还说啥呀...)以为是好味道 ~~不要诈唬的,不要给激着的~~ ) , 要陈思那样不可怜的 ( 不可怜者会冷静,不庸人自扰 ~~冷静的,(不心烦意乱)~~  不可怜者会 看自己心意 pick up little fun and have little fun, satisfied by herself )
+       about it, I dont give a shit. DONE ) (+最好跟一些这样 的人 在一起呆着。不要[可怜的](https://twitter.com/Ramboy85/status/871522198627811328) ( 可怜者会诈唬 可怜者会被激着 可怜者会salty而[不自知](https://twitter.com/fillinthablankk/status/871555209809580033#all-these-flavors-u-choose-to-be-salty#输了都输了还说啥呀...)以为是好味道 a-frustrating-big-deal ~~不要诈唬的,不要给激着的~~ ) , 要陈思那样不可怜的 ( 不可怜者会冷静,不庸人自扰 ~~冷静的,(不心烦意乱)~~ 了解情况做事 not a big deal 不可怜者会 看自己心意 pick up little fun and have little fun, satisfied by herself )
 
 ```
 不可怜的
