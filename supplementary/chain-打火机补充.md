@@ -1,5 +1,5 @@
 
-(选择：不能说“我来错地方了”-因为本次确实有收获and下次还回来的。应该说 “购物-会过日子” - 买东西[1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-严肃对待.md#商店里挑出一个东西来，就是严肃对待啊) )
+(选择：不能说“我来错地方了”-因为本次确实有收获and下次还回来的。不可能憎恨商店吧。应该说 “购物-会过日子” - 买东西[1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-严肃对待.md#商店里挑出一个东西来，就是严肃对待啊) 。 东西：买一次，回家用 哦耶)
 
 (选择：鉴于 “有可能，只要形成意向，一旦暴露就 就会受到攻击” ，那么 最终落到 东西vs我 。很小的二人范围。<br>
        说明：东西是`干嘛的`东西，不带任何象征意义(东西是什么东西? ohh it begin marketing, involved salesmen, so dont do that.)。<br>
