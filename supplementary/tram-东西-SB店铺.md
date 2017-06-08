@@ -10,7 +10,7 @@ SB店铺：卖雨伞的 播天气预报     # 黑人问好.jpg
 
 SB店铺太多了！
 
-SB: 不会看伞、也不会看店，专门去SB店铺 ———— 然后分享购买使用心得
+SB: 不会看伞、也不会看店，专门去SB店铺 ———— 然后分享购买使用心得,给人瞎背书,瞎跟人吵 [可怜,小鸡子似的](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-打火机补充.md)
 
 严肃对待：
 - 商店里 挑出 一个东西来，就是严肃对待啊 (看也不看就自己吃了,就不是严肃对待)
