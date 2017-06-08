@@ -1,5 +1,5 @@
 
-会看：挑伞(伞柄、伞骨结实)。
+会看：挑伞(伞柄、伞骨结实) ———— 东西 是`干嘛的`东西。
 
 会看：挑店面。
 ```
@@ -19,3 +19,11 @@ SB: 不会看伞、也不会看店，专门去SB店铺 ———— 然后分享
 
 
 [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-严肃对待.md)
+
+文艺店铺：<br>
+- 直觉，文艺店铺都很贵
+- 直觉，文艺店铺和普通店铺的区别 - 会卖：东西是干嘛的东西，不带任何象征意义(东西是什么东西? ohh it begin marketing, involved salesmen, so dont do that.)。 
+[1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-打火机补充.md)
+
+
+
