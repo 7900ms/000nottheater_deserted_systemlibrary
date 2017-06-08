@@ -18,8 +18,12 @@
 要小说家 -> BOX -> 人物A -> BOX -> 场景A -> BOX -> 是人A -> BOX
 ```
 - 非常安全，每一级 都可以在 BOX 里狂闹，因为有 BOX 在。 ( 不用担心超出 BOX )
-- 如果想改变本 BOX 必须先走到上一级 ( 不用谋求本级能改变 BOX, 因为那基本会被判定为 非常突兀or发神经 )
+- 如果想改变本 BOX 必须先走到上一级 ( 不用谋求本级能改变 BOX, 因为那基本会被判定为 非常突兀or发神经or很[可怜](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-打火机补充.md#可怜：在本级里挣扎,四大悲剧的来源) )
 
+#### 别人能听得懂
+
+- 别人能听得懂：在 只说自己感觉时(简单+经常+对自己，有力 + 反应快 + 有重点) ，可以将 遇事 归结为 人物性格：这样别人能听得懂，也能解释
+- 做陷阱者，这个别人不一定听得懂，但可以给别人解释懂 (没有全都控制到 失误 vs 全都控制到了 故意失误 引人[上钩](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-打火机.md#^恶劣情况))
 
 
 -
