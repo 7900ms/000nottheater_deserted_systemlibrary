@@ -24,6 +24,6 @@ SB: 不会看伞、也不会看店，专门去SB店铺 ———— 然后分享
 - 直觉，文艺店铺东西都很贵。一块卖五块[。](http://w/#一块钱的东西进入文艺店铺卖五块)
 - 直觉，文艺店铺和普通店铺的区别 - 会卖：东西是干嘛的东西，不带任何象征意义(东西是什么东西? ohh it begin marketing, involved salesmen, so dont do that.)。 
 [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-打火机补充.md)
-
+- “如此包装[”](https://www.youtube.com/watch?v=T-A13y6pzTw)
 
 
