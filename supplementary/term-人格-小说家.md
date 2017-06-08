@@ -3,7 +3,7 @@
 
 - 先不看自己 (自己是 几大原则刚刚走的, 别人没这个。第三种爱情 学业 霸业,做难的事, 寻找同类(服务人) 寻找自己, 唯一保证(具体事具体分析)，由头-真实惠-看(先)做什么，成熟的性格，承认自己来错地方了，九宫格，陪审团，有打火机且正确的打火机防止被攻击)
 - 归结为 人物性格
-- 掌控(能聊完)一个你无法掌控(看起来 以冷静态度 无法聊完)的东西时，直接 归结为 人物性格
+- 掌控(能聊完)一个你无法掌控(看起来 以冷静态度 无法聊完)的东西时，直接 归结为 人物性格 [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/tram-上街-东西-SB店铺.md#会砍价vs爱挥霍的性格)
 - 本质是(aka没什么了不起,仅仅是) 减少时间 (三两句概括了) (而不是 聊得准确[)](http://w/#因为不值得那么准确去聊。而且..卖伞的盼下雨,没理由跟卖伞的-聊天气预报当真。准确就是当真,不当真干嘛要准确)
 - 注意，这不是看电影的原因。看某电影的原因是 1.别人看的我不需要看,不用鸡兔同笼 2.我看侦探游记就够了 3.一种思想状态下去看的[1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/travelwriting/small/6.md#怎么看-否则怎么会认真看)[2](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/travelwriting/small/6.md#否则怎么会平复心情(还)看##因为打火机的放弃情绪激动,放弃能被攻击的过程和形象,而仅仅是结果) 4.由头-真实惠-条件限制-看(先)做什么 [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md#看什么-否则怎么知道看什么)
 
