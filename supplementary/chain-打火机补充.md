@@ -1,5 +1,5 @@
 
-(选择：不能说“我来错地方了”-因为本次确实有收获and下次还回来的。不可能憎恨 去这里(商店)拿东西d`东西铺子` 吧。<br>应该说 “买东西-会过日子” - 买东西[1](http://w/#本页-东西是`干嘛的`东西)[2](http://w/#关注在东西：会看。东西附加的营销也没多大意思-卖伞的盼下雨-附加了再多也得除去)[3](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-严肃对待.md#商店里挑出一个东西来，就是严肃对待啊) 。 东西：买一次，回家用 哦耶。东西：放弃。东西：到手，回家用。东西：买一次就够了 下次不用买了) 【多跟`实在人`在一起：不需要的东西不要买、要的东西要会买 [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/tram-上街-东西-SB店铺.md)】
+(选择：不能说“我来错地方了”-因为本次确实有收获and下次还回来的。不可能憎恨 去这里(商店)拿东西d`东西铺子` 吧。<br>应该说 “买东西-会过日子” - 买东西[1](http://w/#本页-东西是`干嘛的`东西)[2](http://w/#关注在东西：会看。东西附加的营销也没多大意思-卖伞的盼下雨-附加了再多也得除去)[3](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-严肃对待.md#商店里挑出一个东西来，就是严肃对待啊) 。 东西：买一次，回家用 哦耶。东西：放弃。东西：到手，回家用。东西：买一次就够了 下次不用买了) 【多跟`实在人`在一起：不需要的东西不要买、要的东西要会买 [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/tram-上街-东西-SB店铺.md#所以看人就好了-大众消费者：物美价廉的地方，本身就吸引社会一般人士去购物)】
 
 (选择：鉴于 “有可能，只要形成意向，一旦暴露就 就会受到攻击” ，那么 最终落到 东西vs我 。很小的二人范围。<br>
        说明：东西是`干嘛的`东西，不带任何象征意义(东西是什么东西? ohh it begin marketing, involved salesmen, so dont do that.)。<br>
