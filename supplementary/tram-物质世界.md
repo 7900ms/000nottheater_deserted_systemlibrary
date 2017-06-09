@@ -61,7 +61,7 @@ PS 社会一般人士 (防范意识较强的)：
 
 PS 社会一般人士 (防范意识较强的)：
 - 你永远打不过推销员的。从南京到北京，买的没有卖的精。买家攥紧钱
-- 你永远打不过 被激怒状态下的果粉、大陆粉 `他们暴力得 if u frisk me or touch me u will be in the hospital`
+- 你永远打不过 被激怒状态下的果粉、大陆粉 `他们敏感而暴力得 if u frisk me or touch me u will be in the hospital`
 - how to stop a fight [-](https://twitter.com/ItsFunnyJokers/status/873019335886999552) 太难了
 - so 那么就直接走开就好了，下次看到 `强硬推销员` `guo粉` - 我好像来错地方了
 
