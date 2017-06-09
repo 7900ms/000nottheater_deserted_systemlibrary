@@ -42,3 +42,8 @@
 考虑到他人可能该做某个BOX没在，自己不招人烦 (为根本。察言观色进阶)
 考虑到感情的推进，比如 “终于出国啦”->“出国的第一年”
 ```
+
+不是人烟的气质：
+- 东西 [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/tram-东西.md)
+- 上街买东西 [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/tram-上街-东西-SB店铺.md)
+
