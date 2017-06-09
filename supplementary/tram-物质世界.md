@@ -64,7 +64,7 @@ PS 社会一般人士 (防范意识较强的)：
 - 你永远打不过 被激怒状态下的果粉、大陆粉 `他们敏感而暴力得 if u frisk me or touch me u will be in the hospital`
 - how to stop a fight [-](https://twitter.com/ItsFunnyJokers/status/873019335886999552) 太难了
 - so 那么就直接走开就好了，下次看到 `强硬推销员` `guo粉` - 我好像来错地方了
-- 不要：错位打 (虽然“错位打”是专门对付这种可怜而有力的x粉的，但是 一旦用到 过程,形象(而非结果) 那么就会 `有可能，只要形成意向，一旦暴露就 就会受到攻击`)
+- 不要：错位打 (虽然“错位打”是专门对付这种可怜而有力的x粉的，但是 一旦用到 过程,形象(而非结果) 那么就会 `有可能，只要形成意向，一旦暴露就 就会受到攻击`[-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-打火机.md))
 
 
 
