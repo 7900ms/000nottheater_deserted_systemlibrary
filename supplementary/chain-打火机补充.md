@@ -1,5 +1,5 @@
 
-(选择：我来错地方了，此时此刻 我相信我有更好的事做 it's not a big deal just a better thing now way up to do - 不说是什么[_](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/local-window#万用语:你会不会选啊--而不是-该怎么选)[)](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/local-window#因为会受到攻击-#店家会来暴力推销东西。任何一个元素说出来-店家都想着给你怼回去-他是攥钱图利的!)
+(选择：我来错地方了，此时此刻 我相信我有更好的事做 it's not a big deal just a better thing now way up to do [-](http://w/#感受到躲避故意下的套的意思了么:不要说具体的事!) 不说是什么[_](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/local-window#万用语:你会不会选啊--而不是-该怎么选)[)](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/local-window#因为会受到攻击-#店家会来暴力推销东西。任何一个元素说出来-店家都想着给你怼回去-他是攥钱图利的!)
 
 (选择：不能说“我来错地方了”-因为本次确实有收获and下次还回来的。不可能憎恨 去这里(商店)拿东西d`东西铺子` 吧。<br>
 应该说 “物质世界-好的买家买家关系” [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/tram-物质世界.md)<br>
