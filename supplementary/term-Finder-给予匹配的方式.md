@@ -63,6 +63,6 @@ another eg:
 
 嫁出去的女儿，泼出去的水。你总以为自己是你父母家的人？你有意思吗？人家都不要你了。你在乎人家 人家在乎你吗/<br>
 看不清楚这一点，有别的路径 别自己闷头向前走 <br>
-看清楚这一点，自己要什么结果 怎么要 怎么稳妥 全靠自己
+看清楚这一点，自己要什么结果 怎么要 怎么稳妥 全靠自己 [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/slang-不要老想着花了钱haoxiang就是别人的事情了.md)
 
 -
