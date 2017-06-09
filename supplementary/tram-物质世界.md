@@ -13,6 +13,9 @@ survive 物质世界
 
 需要的东西 -> Y -> 接受信息 -> Y -> 心里有底 -> Y -> 去商店 -> Y -> 随便看看 -> Y(不懂得 不露声色。不懂得 店家会来暴力推销东西, 缠着你咯) -> 借故离开 -> Y(不懂得货比三家) -> 货比三家 -> Y -> 借故离开 -> Y -> 买到东西 -> Y
 
+说到底：
+人一旦攥紧钱，就会变得很聪明[-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-意图-攥紧钱.md)
+
 买东西：
 - 货比三家
 - 物美价廉
