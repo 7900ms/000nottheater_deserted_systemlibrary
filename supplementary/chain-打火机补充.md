@@ -1,4 +1,6 @@
 
+(选择：我来错地方了，此时此刻 我相信我有更好的事做 it's not a big deal just a better thing now way up to do - 不说是什么 [)](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/local-window#万用语:你会不会选啊?(而不是-该怎么选-因为会受到攻击-#店家会来暴力推销东西。任何一个元素说出来-店家都想着给你怼回去-他是攥钱图利的!)
+
 (选择：不能说“我来错地方了”-因为本次确实有收获and下次还回来的。不可能憎恨 去这里(商店)拿东西d`东西铺子` 吧。<br>
 应该说 “物质世界-好的买家买家关系” [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/tram-物质世界.md)<br>
 应该说 “买东西-会过日子” - 买东西[1](http://w/#本页-东西是`干嘛的`东西)[2](http://w/#关注在东西：会看。东西附加的营销也没多大意思-卖伞的盼下雨-附加了再多也得除去)[3](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-严肃对待.md#商店里挑出一个东西来，就是严肃对待啊) 。 东西：买一次，回家用 哦耶。东西：放弃。东西：到手，回家用。东西：买一次就够了 下次不用买了) 【多跟`实在人`在一起：不需要的东西不要买、要的东西要会买 [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/tram-上街-东西-SB店铺.md#所以看人就好了-大众消费者：物美价廉的地方，本身就吸引社会一般人士去购物)】
