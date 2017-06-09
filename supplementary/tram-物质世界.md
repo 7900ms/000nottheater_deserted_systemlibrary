@@ -16,6 +16,10 @@ survive 物质世界
 说到底：
 人一旦攥紧钱，就会变得很聪明[-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-意图-攥紧钱.md)
 
+买家：
+- 大款
+- 社会一般人士 (社会一般人士的防范意识)
+
 买东西：
 - 货比三家
 - 物美价廉
