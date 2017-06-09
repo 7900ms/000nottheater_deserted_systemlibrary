@@ -10,7 +10,7 @@
 = = =
 
 买家[：](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/tram-物质世界.md)
-- 大款
+- 大款 (炫耀)
 - 社会一般人士 (社会一般人士的防范意识)
 
 = = =
