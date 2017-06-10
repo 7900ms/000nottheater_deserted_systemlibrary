@@ -34,6 +34,6 @@ chain-意图-毒狼.md
 
 [1](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/slang-FUD.md#有毒的人)
 [2](https://www.youtube.com/watch?v=cfjjmUtt4Jc#和珅有毒在专制制度下,计天下,记苍生,往往有毒) [-](https://twitter.com/xblylgsm/status/871570965926367233#渗透-海外学联)
-[3](https://twitter.com/renfanzi/status/872721244403015680#因为大家都知道中国人对中国人最操蛋)
+[3](https://twitter.com/renfanzi/status/872721244403015680#因为大家都知道中国人对中国人最操蛋。最好的事就是:所做的工作终于和中国毫无瓜葛)
 
 -
