@@ -17,6 +17,8 @@
 
 而且我主动嫌弃你，那我就有所反馈 -
 
+我敢于嫌弃，就敢于主动不那样 ----- 不可能我嫌弃啥样子 还做啥样子
+
 https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-lightshelf/楼梯.md
 
 
