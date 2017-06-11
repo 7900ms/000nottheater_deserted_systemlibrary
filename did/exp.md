@@ -65,3 +65,8 @@ https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/supp
 https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-window/on-jianghu/维吾尔族裔-形象-热情开朗(个人的庄重非常重要).md
 
 https://www.v2ex.com/notes/28139
+
+https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/net-msg
+
+
+
