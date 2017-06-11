@@ -1,5 +1,5 @@
 
-(选择：假设自己做某事第二天会上报纸，报纸写 xxx or yyy 你希望看到哪个呢 [-](https://justyy.com/archives/1460#而是living-to-my-full-potential))
+(选择：假设自己做某事第二天会上报纸，看你做什么了，报纸写 xxx or yyy <br>你希望看到哪个呢 [-](https://justyy.com/archives/1460#而是living-to-my-full-potential))
 
 (选择：我来错地方了，此时此刻 我相信我有更好的事做 it's not a big deal just a better thing now way up to do [-](http://w/#感受到躲避他的'故意下的套'的意思了么:对他,不要说具体的事!不要对他说任何具体的事) 不说是什么[_](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/local-window#万用语:你会不会选啊--而不是-该怎么选)[)](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/local-window#因为会受到攻击-#店家会来暴力推销东西。任何一个元素说出来-店家都想着给你怼回去-他是攥钱图利的!)
 
