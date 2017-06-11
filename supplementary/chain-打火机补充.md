@@ -1,5 +1,5 @@
 
-(选择：报纸决策法, 假设自己不管做什么第二天都会上报纸，那你现在会做什么<br> [-](https://justyy.com/archives/1460#而是living-to-my-full-potential) [-](http://www.360doc.com/content/13/0417/17/596898_279024621.shtml#报纸头条测试法在默认BOX里) )
+(选择：报纸决策法, 在一份你的大家们都有阅读的报纸上，你做的事都会被登为头条，那么你现在会做什么<br> [-](https://justyy.com/archives/1460#而是living-to-my-full-potential) [-](http://www.360doc.com/content/13/0417/17/596898_279024621.shtml#报纸头条测试法在默认BOX里) )
 
 (选择：我来错地方了，此时此刻 我相信我有更好的事做 it's not a big deal just a better thing now way up to do [-](http://w/#感受到躲避他的'故意下的套'的意思了么:对他,不要说具体的事!不要对他说任何具体的事) 不说是什么[_](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/local-window#万用语:你会不会选啊--而不是-该怎么选)[)](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/local-window#因为会受到攻击-#店家会来暴力推销东西。任何一个元素说出来-店家都想着给你怼回去-他是攥钱图利的!)
 
