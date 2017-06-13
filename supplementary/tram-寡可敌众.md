@@ -1,4 +1,6 @@
 
+[-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder-杀点.txt)
+
 tram-寡可敌众
 
 - 承认我来错地方了，走就可以了 (看见有人在给我下套)
