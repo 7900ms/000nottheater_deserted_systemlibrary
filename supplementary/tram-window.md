@@ -41,7 +41,7 @@ keep doing, they are not dead
 你的所有一切头脑 都有助于你活得很好
 
 平复下来，平复下来
-愿意笑就笑 愿意仅取所需就仅取所需 愿意走roadmap就走roadmap
+愿意笑就笑 愿意仅取所需就仅取所需 愿意走roadmap就走roadmap 愿意保持被动不上套就不上套
 
 ```
 
