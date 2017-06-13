@@ -2,7 +2,7 @@
 时机：
 休闲时光
 
-> it is just a mind game.
+> can i take part into this mind game ?
 
 (既然是和人交往，那就是 请求看人咯。会看)
 
