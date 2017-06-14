@@ -11,7 +11,7 @@
 
 [-](https://youtu.be/u2NTZTZwo8U?t=28m45s#曲vs关#小白兔vs打群架泡靓仔)
 
-[-](https://youtu.be/2hsdPfhljFM?t=8m34s#安迪vs樊-酒吧)
+[-](https://youtu.be/2hsdPfhljFM?t=8m14s#安迪vs樊-酒吧)
 
 聪明人对傻人
 
