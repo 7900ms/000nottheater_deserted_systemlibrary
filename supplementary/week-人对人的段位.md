@@ -7,7 +7,7 @@
 
 聪明人对傻人
 
-[-](https://youtu.be/u2NTZTZwo8U?t=23m57s#曲vs樊)
+[-](https://youtu.be/u2NTZTZwo8U?t=21m55s#曲vs樊)
 
 [-](https://youtu.be/u2NTZTZwo8U?t=28m45s#曲vs关#小白兔)
 
