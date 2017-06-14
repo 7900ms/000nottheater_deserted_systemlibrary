@@ -17,4 +17,4 @@
 
 
 
-后果论，后果论就是损失论 [-](https://youtu.be/2hsdPfhljFM?t=7m50s)
+后果论，后果论就是损失论 [-](https://youtu.be/2hsdPfhljFM?t=7m50s#做错事的后果就是损失一万元钱+邻里关系闹僵但邻里相见不相识可以承受---)
