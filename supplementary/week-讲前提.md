@@ -5,7 +5,7 @@
 
 在某些前提下成立，在某些前提下 不成立
 
-前提变了 就不成立了 [-](https://youtu.be/u2NTZTZwo8U?t=23m57s)
+前提变了 就不成立了 [-](https://youtu.be/u2NTZTZwo8U?t=23m57s) [--](https://youtu.be/u2NTZTZwo8U?t=36m25s)
 
 = = =
 
