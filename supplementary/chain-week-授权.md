@@ -42,7 +42,7 @@ want $ + 😊 的做法是：打群架追靓仔
 
 not want $ + 😊 + want to be respected 的做法是：
 
-(在一个 reaching 层面。问题是 很难要到的 )
+(在一个 reaching 层面。问题是 很难要到的,预想的很好但是 抢钱的成本比抢到手的钱更多 怎么办->放弃抢钱 OR 降低抢钱成本 [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/supplementary/term-robber/抢钱的问题.md) )
 
 开始从“管人”本身 得到精神享受 [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/wilder/红高粱.md)
 
