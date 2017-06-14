@@ -9,7 +9,7 @@
 
 [-](https://youtu.be/u2NTZTZwo8U?t=21m55s#曲vs樊)
 
-[-](https://youtu.be/u2NTZTZwo8U?t=28m45s#曲vs关#小白兔)
+[-](https://youtu.be/u2NTZTZwo8U?t=28m45s#曲vs关#小白兔vs打群架泡靓仔)
 
 聪明人对傻人
 
