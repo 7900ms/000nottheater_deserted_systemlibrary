@@ -5,7 +5,7 @@
 
 在某些前提下成立，在某些前提下 不成立
 
-前提变了 就不成立了 [-](https://youtu.be/u2NTZTZwo8U?t=23m57s) [--](https://youtu.be/u2NTZTZwo8U?t=36m23s)
+前提变了 就不成立了 [-](https://youtu.be/u2NTZTZwo8U?t=23m57s) [--](https://youtu.be/u2NTZTZwo8U?t=36m23s#所以我们不管是跟谁说什么一定要看清前提。当然了有些话一定是不与傻瓜论短长)
 
 = = =
 
