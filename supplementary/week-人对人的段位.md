@@ -1,0 +1,15 @@
+
+聪明人对聪明人
+
+[-](https://youtu.be/u2NTZTZwo8U?t=36m23s#安迪vs曲-所以我们不管是跟谁说什么一定要看清前提。当然了有些话一定是不与傻瓜论短长)
+
+聪明人对傻人
+
+[-](https://youtu.be/u2NTZTZwo8U?t=23m57s#安迪vs樊)
+
+聪明人对傻人
+
+[-](https://youtu.be/abaiITZt6C8?t=20s#安迪vs奇点-我觉得你个傻子在判断我，让我很不舒服)
+
+
+
