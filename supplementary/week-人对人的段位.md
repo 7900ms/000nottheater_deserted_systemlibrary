@@ -9,7 +9,7 @@
 
 [-](https://youtu.be/AQHBqyG8Rcc?t=10m15s#安迪vs安迪#驱走邪念--假装啥事都没发生)
 
-[-](https://youtu.be/AQHBqyG8Rcc?t=14m40s#安迪vs曲-安迪教曲-谈判里突出自己的强项-针对他们的问题来说-BraisedPork红烧肉)
+[-](https://youtu.be/AQHBqyG8Rcc?t=14m40s#安迪vs曲-安迪教曲-谈判里突出自己的强项-针对他们的问题来说-BraisedPork红烧肉。做到到最后,高端的人就是回答问题)
 
 聪明人对傻人
 
