@@ -7,6 +7,8 @@
 
 [-](https://youtu.be/6vb6ZErc34k?t=20m13s#安迪vs安迪#驱走邪念-假装啥事都没发生)
 
+[-](https://youtu.be/AQHBqyG8Rcc?t=10m15s#安迪vs安迪#驱走邪念--假装啥事都没发生)
+
 聪明人对傻人
 
 [-](https://youtu.be/u2NTZTZwo8U?t=21m55s#曲vs樊)
