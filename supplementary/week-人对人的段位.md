@@ -17,6 +17,8 @@
 
 [-](https://youtu.be/2lCPTeJ0Zl4?t=37m35s#安迪vs邱#被下套)
 
+[-](https://youtu.be/2lCPTeJ0Zl4?t=9m21s#安迪vs邱#小邱玩手机玩得特好-挖掘隐藏功能的乐趣)
+
 聪明人对傻人
 
 [-](https://youtu.be/abaiITZt6C8?t=20s#安迪vs奇点-我觉得你个傻子在判断我，让我很不舒服)
