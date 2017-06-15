@@ -9,6 +9,8 @@
 
 [-](https://youtu.be/AQHBqyG8Rcc?t=10m15s#安迪vs安迪#驱走邪念--假装啥事都没发生)
 
+[-](https://youtu.be/AQHBqyG8Rcc?t=14m40s#安迪vs曲-安迪教曲-谈判里突出自己的强项-针对他们的问题来说-BraisedPork红烧肉)
+
 聪明人对傻人
 
 [-](https://youtu.be/u2NTZTZwo8U?t=21m55s#曲vs樊)
