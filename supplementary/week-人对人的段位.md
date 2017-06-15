@@ -15,6 +15,8 @@
 
 [-](https://youtu.be/2hsdPfhljFM?t=8m14s#安迪vs樊30-酒吧。无可奈何无能为力-她应该能感受到你的善意,但现在来看她维护自己面具的决心比她的理智更甚。聪明人打不过傻人)
 
+[-](https://youtu.be/2lCPTeJ0Zl4?t=37m35s#安迪vs邱#被下套)
+
 聪明人对傻人
 
 [-](https://youtu.be/abaiITZt6C8?t=20s#安迪vs奇点-我觉得你个傻子在判断我，让我很不舒服)
