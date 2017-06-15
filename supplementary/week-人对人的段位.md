@@ -11,6 +11,8 @@
 
 [-](https://youtu.be/AQHBqyG8Rcc?t=14m40s#安迪vs曲-安迪教曲-谈判里突出自己的强项-针对他们的问题来说-BraisedPork红烧肉。做到到最后,高端的人就是回答问题)
 
+[-](https://youtu.be/4msp3_4PkNE?t=12m27s#安迪vs曲-安迪教曲-谈判里突出自己的强项-针对他们的问题来说-BraisedPork红烧肉。做到到最后,高端的人就是回答问题,获取人的信任)
+
 聪明人对傻人
 
 [-](https://youtu.be/u2NTZTZwo8U?t=21m55s#曲vs樊)
