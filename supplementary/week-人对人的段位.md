@@ -5,6 +5,8 @@
 
 [-](https://youtu.be/u2NTZTZwo8U?t=36m23s#安迪vs曲-所以我们不管是跟谁说什么一定要看清前提。当然了有些话一定是不与傻瓜论短长)
 
+[-](https://youtu.be/6vb6ZErc34k?t=20m13s#安迪vs安迪#驱走邪念-假装啥事都没发生)
+
 聪明人对傻人
 
 [-](https://youtu.be/u2NTZTZwo8U?t=21m55s#曲vs樊)
