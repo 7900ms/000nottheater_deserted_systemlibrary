@@ -53,3 +53,8 @@ not want $ + 😊 + want to be respected 的做法是：
 
 
 > 道德、自愿、授权、前提(+预约) - 多一回合
+
+<br><br><br><br>
+
+自己在自己的身份上把握分寸[-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/week-情商即分寸-把握分寸是自己的事.md) 就很累了，自己还要晋级身份[-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-lightshelf/羊圈.md#你谁呀你身份不明-不可能带你玩) 就很累了，还养什么人啊
+
