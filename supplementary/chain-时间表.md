@@ -9,5 +9,6 @@
 - 工作就是身份 [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/supplementary/Zhihua)
 - 几个不同的身份，能互通的唯一东西之一--语言 [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/supplementary/Zhihua)
 
-
+小成就:
+- 勇士队终于把他打秃了，恭喜啊兄弟 再接再厉
 
