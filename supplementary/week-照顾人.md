@@ -1,7 +1,24 @@
 
-和人一起住，要是 “别人万一晚上发病了要送医院” 我要怎么做
+看身份
+
+和人一起住，要是 “别人万一晚上发病了要送医院” 他什么身份(身份不明?), 我要怎么做
 
 欢乐颂10
 
 
 -
+
+自己看自己的身份：
+
+照顾人的早起，坏了 -> 身份成奴隶了 -> 照顾人的早起,被照顾的不会早起 -> 被照顾的人也不会起得来
+
+想着自己的人 早起 -> 在本身份上得体把握分寸,晋级其他更高的身份 -> 想着别人(想着教育别人)不会早起
+
+下套：
+你就是一个照顾人的老妈子的身份。夸你照顾别人照顾得好。你就得照顾别人，别人不能自己照顾自己，别人不愿意自己照顾自己。 [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-week-授权.md)
+
+-
+
+身份不明, 照顾谁人
+[-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-lightshelf/羊圈.md)
+
