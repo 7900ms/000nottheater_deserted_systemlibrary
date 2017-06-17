@@ -49,7 +49,7 @@ not want $ + 😊 + want to be respected 的做法是：
 ( 小孩子 以为 就 二选一了：一堆人自己聚在身边然后自己要管人 OR 没人聚在自己身边 )<br>
 ( 成熟的做法是：(低能) 学会合作，一堆人聚在自己身边，给他们 由头-真实惠-条件限制-看(先)做什么 )
 
-( 成熟的做法是：(高能,极限状态), 向上: 超爱摆POSE[，](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/tram-window.md#有“这副好身躯-赋予其意义”的)向下: 用最精简的步骤做法。总之 别人无法跟得上你 ... 你太不同的了(组织里磨灭个性,你太有个性)，<br>别人也管不了你，你也管不了别人，每个人都太不同了 也不需要i管 )
+( 成熟的做法是：(高能,极限状态), 向上: 超爱摆 POSE [，](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/tram-window.md#有“这副好身躯-赋予其意义”的)向下: 用最精简的步骤做法。总之 别人无法跟得上你 ... 你太不同的了(组织里磨灭个性,你太有个性)，<br>别人也管不了你，你也管不了别人，每个人都太不同了 也不需要i管 )
 
 
 > 道德、自愿、授权、前提(+预约) - 多一回合
