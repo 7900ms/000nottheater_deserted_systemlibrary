@@ -12,3 +12,5 @@
 身份 下套
 ```
 
+[-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-week-授权.md#自己事够忙-在自己的身份上把握分寸-晋级身份)
+
