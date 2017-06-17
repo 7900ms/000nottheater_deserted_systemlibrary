@@ -19,6 +19,6 @@
 
 -
 
-身份不明, 照顾谁人
+身份不明, 照顾谁人；身份好 可以鼓励其自己照顾自己 独立
 [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-lightshelf/羊圈.md)
 
