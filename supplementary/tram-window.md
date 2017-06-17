@@ -19,7 +19,7 @@
 
 chain:
 
-对自己看透 -> i can lead -> 摆POSE[，](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/did/dido)我的必需品 -> 不公开标准(防止下套) -> BOX(熟悉的场景,人会问什么,人想问什么,怎么回答好，不是自己的感觉(简单+经常+对自己，有力 + 反应快 + 有重点) 不说，是自己的感觉的 不公开标准 只说'我不喜欢这个'不说'我不喜欢哪个')
+对自己看透 -> i can lead -> 摆 POSE [，](https://github.com/7900ms/000nottheater_deserted_systemlibrary/tree/master/did/dido)我的必需品 -> 不公开标准(防止下套) -> BOX(熟悉的场景,人会问什么,人想问什么,怎么回答好，不是自己的感觉(简单+经常+对自己，有力 + 反应快 + 有重点) 不说，是自己的感觉的 不公开标准 只说'我不喜欢这个'不说'我不喜欢哪个')
 
 
 <br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br>
