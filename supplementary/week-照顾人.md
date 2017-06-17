@@ -17,6 +17,8 @@
 下套：
 你就是一个照顾人的老妈子的身份。夸你照顾别人照顾得好。你就得照顾别人，别人不能自己照顾自己，别人不愿意自己照顾自己。 [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-week-授权.md)
 
+打游戏 -> 别人替你打 -> 打坏了
+
 了解,打听,了解信息-帮你 了解一下,说不干扰你 -> 准备插手
 
 -
