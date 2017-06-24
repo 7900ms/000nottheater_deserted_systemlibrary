@@ -10,3 +10,5 @@
 
 [-](https://web.archive.org/web/20170308073446/http://www.yinwang.org/blog-cn/2013/03/07/linux-windows-mac)
 
+冷静观察 对方的身份 （是否有把握份寸，可下套）
+
