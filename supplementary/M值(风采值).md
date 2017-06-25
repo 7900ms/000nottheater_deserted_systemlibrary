@@ -115,8 +115,11 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 - 一个搞封闭式训练的健身运动员 [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/physical-physique)
 
 说明
-- 冷漠的心, 谦虚的心, 虚心态度等于冷静观察, 不公开标准
-- 别人不care你的政党, 你care他们的下套
-- 羊圈 判断他人身份
+- 性价比高：身份/话语值 (不同身份的互通性/努力值)
+- 羊圈 判断他人身份 反侦察和隐藏身份
+- 进攻：冷漠的心, 谦虚的心, 虚心态度等于冷静观察, 不公开标准
+- 防守：别人不care你的政党, 你care他们的下套 (应对外部世界 - 九宫格 - local-lightshelf , 对外部世界的省时观察 - 小说家 - local-window)
+
+
 
 
