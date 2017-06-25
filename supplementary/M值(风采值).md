@@ -127,7 +127,7 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 - 长得好看有助于激发爱情 [-](https://twitter.com/GSWdelivery/status/878948629133762560#在一群人里的爱情,球队-Steph-Ayesha--兄弟你有16小时闲置的感觉-不一定找汤唯那样的-但个人素质综合M值一定是配得上汤唯的)
 
 说明
-- 用 sweet 微笑来掩盖一切 [-](https://twitter.com/Sabrina0527/status/877181958622658561#更加有力.通过捍卫价值得到新的身份-是自然的微笑--同时非常非常适合防止下套(微笑时头脑飞速运转)--同时非常非常适合-身份把握分寸-身份晋级爬藤)
+- (面对twitter场景的他们) 用 sweet 微笑来掩盖一切 [-](https://twitter.com/Sabrina0527/status/877181958622658561#更加有力.通过捍卫价值得到新的身份-是自然的微笑--同时非常非常适合防止下套(微笑时头脑飞速运转)--同时非常非常适合-身份把握分寸-身份晋级爬藤)
 - 他们,他们不care的，只care你的(钱和地位)和你是否可爱 [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/supplementary/term-robber)
 
 
