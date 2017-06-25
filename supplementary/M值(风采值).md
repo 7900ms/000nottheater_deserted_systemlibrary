@@ -109,3 +109,14 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 为身份努力(身份把握分寸得体，身份的晋级爬藤) [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/week-照顾人.md#而不是照顾人)
 
 
+# M
+
+形象 (典型形象 / 可隐藏身份的形象)
+- 一个搞封闭式训练的健身运动员 [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/physical-physique)
+
+说明
+- 冷漠的心, 谦虚的心, 虚心态度等于冷静观察, 不公开标准
+- 别人不care你的政党, 你care他们的下套
+- 羊圈 判断他人身份
+
+
