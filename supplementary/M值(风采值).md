@@ -145,7 +145,7 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 - - 跟洋人员工一起 被坑了一起维护权利，而不是和大陆员工-公司违反劳动条例了他们都不懂告发 [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-window/人物动机.md)
 - - 在思路上，很容易转换到支持人权 (支持保护个人权利, 支持民族自决权, 支持自愿立国, 支持人们保护自己的权利而反对暴政，支持台湾独立香港独立新疆西藏独立广东独立)
 - - 在内 管好自己 几大原则 承认自己来错地方了 讲前提
-- - 在外 九宫格 说自己的感觉(简单+经常+对自己，有力+反应快+有重点) 小说家 看出下套，[羊圈](https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-lightshelf/羊圈.md) 三人格 都能用上
+- - 在外 九宫格 说自己的感觉(简单+经常+对自己，有力+反应快+有重点) 小说家 看出下套，[羊圈](https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-lightshelf/羊圈.md#身份不明-身份来自于捍卫的价值-自己选择捍卫的价值就有了新的身份-丫支不支持同性恋就能看出你的身份) 三人格 都能用上
 - - 那些等着看同性恋的笑话的人，他们也是在下套，而且并不是每个国家都支持法律保护同性恋权利
 
 
