@@ -135,5 +135,14 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 - 爱 是没有错[的](#表达出爱，就是表达出对打压爱(爱人权爱自由)的行为的不屑与不耻和反对。这是考虑过防止下套的)[。](https://twitter.com/itsIvanOk/status/878688189027946496#——保护所爱--表达出爱，就是表达出对打压爱(爱人权爱自由)的行为的不屑与不耻和反对，保护爱--看出下套并反对下套)[-](https://twitter.com/itsIvanOk/status/878702152163745793#在现代社会,人是自愿结成族裔来保护自己的权利的,用法律保护人的权利,结成国家,爱自由就是要求你这块土地的执政党来保护人的权利) [-](http://www.australia.com/zh-hk/events/2016/february/sydney-mardi-gras.html)
 - 可以用这个好形象来表达爱 [-](https://twitter.com/TomasinoWeb/status/878893558605824000#Pride2017inManilaPhilippines) [-](https://twitter.com/justlaughu/status/878991249969106944)
 
+同性恋身份 让我想到：
+- 人们是不care, 但在 Pride2017 的时候会来出来支持同性恋 保护同性恋的权利
+- 同样是和人权相关的
+- 同样是不被大陆人接受, 但被一般外国人接受
+- 同样是用爱来反对(爱人权爱自由,反对对同性恋权利的不保护)
+- 跟洋人员工一起 被坑了一起维护权利，而不是和大陆员工-公司违反劳动条例了他们都不懂告发 [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-window/人物动机.md)
+- 在思路上，很容易转换到支持人权 (支持保护个人权利, 支持民族自决权, 支持自愿立国, 支持人们保护自己的权利而反对暴政，支持台湾独立香港独立新疆西藏独立广东独立)
+- 那些等着看同性恋的笑话的人，他们也是在下套，而且并不是每个国家都支持法律保护同性恋权利
+
 
 
