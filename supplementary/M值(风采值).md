@@ -133,7 +133,7 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 
 说明
 - 爱 是没有错[的](#表达出爱，就是表达出对打压爱(爱人权爱自由)的行为的不屑与不耻和反对。这是考虑过防止下套的)[。](https://twitter.com/itsIvanOk/status/878688189027946496#——保护所爱--表达出爱，就是表达出对打压爱(爱人权爱自由)的行为的不屑与不耻和反对，保护爱--看出下套并反对下套)[-](https://twitter.com/itsIvanOk/status/878702152163745793#在现代社会,人是自愿结成族裔来保护自己的权利的,用法律保护人的权利,结成国家,爱自由就是要求你这块土地的执政党来保护人的权利) [-](http://www.australia.com/zh-hk/events/2016/february/sydney-mardi-gras.html)
-- 可以用这个好形象来表达爱
+- 可以用这个好形象来表达爱 [-](https://twitter.com/TomasinoWeb/status/878893558605824000) [-](https://twitter.com/justlaughu/status/878991249969106944)
 
 
 
