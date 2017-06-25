@@ -129,7 +129,7 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 说明
 - (面对twitter场景的他们) 用 sweet 微笑来掩盖一切 [-](https://twitter.com/Sabrina0527/status/877181958622658561#更加有力.通过捍卫价值得到新的身份-是自然的微笑--同时非常非常适合防止下套(微笑时头脑飞速运转)--同时非常非常适合-身份把握分寸-身份晋级爬藤)
 - 他们,他们不care的，只care你的(钱和地位)和你是否可爱 [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/supplementary/term-robber)
-- 而我care的是 给人由头-真实惠，给谁 [-](http://w/#我可能很冲动地选择汤唯那样的女生作女友。汤唯是怎样的女生？被封杀过,以我认为不正当的理由。基本上周围人不会认同，这样等于主动把自己置于一个极端环境里,自动卡掉了很大一部分东西-我以承受这样的情况很OK)
+- 而我care的是 给人由头-真实惠，给谁 [-](http://w/#我可能很冲动地选择汤唯那样的女生作女友。汤唯是怎样的女生？被封杀过,以我认为不正当的理由。基本上周围人不会认同，这样等于主动把自己置于一个极端环境里,自动卡掉了很大一部分东西-我以承受这样的情况很OK-正合我意,巴不得卡掉那些)
 
 
 
