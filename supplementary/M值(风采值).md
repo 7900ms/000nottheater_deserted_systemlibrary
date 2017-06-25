@@ -132,7 +132,7 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 - 而我care的是 给人由头-真实惠，给谁 [-](http://w/#我可能很冲动地选择汤唯那样的女生作女友。汤唯是怎样的女生？被封杀过,以我认为不正当的理由。基本上周围人不会认同，这样等于主动把自己置于一个极端环境里)[-](http://w/主动把自己置于一个极端环境里,自动卡掉了很大一部分东西-我以承受这样的情况很OK-正合我意,巴不得卡掉那些.等于我给这个环境下了个套-我顺利解脱了.顺理成章地得到三人格里的新的规则和责任) 在极端环境给谁[-](http://www.1905.com/vod/play/85406.shtml#电影我们俩30:45#极端环境)
 
 说明
-- 爱 是没有错的[。](https://twitter.com/itsIvanOk/status/878688189027946496#——保护所爱--表达出爱，就是表达出对打压爱(爱人权爱自由)的行为的不屑与不耻和反对，保护爱--看出下套并反对下套)[-](https://twitter.com/itsIvanOk/status/878702152163745793#在现代社会,人是自愿结成族裔来保护自己的权利的,用法律保护人的权利,结成国家,爱自由就是要求你这块土地的执政党来保护人的权利) [-](http://www.australia.com/zh-hk/events/2016/february/sydney-mardi-gras.html)
+- 爱 是没有错[的](#表达出爱，就是表达出对打压爱(爱人权爱自由)的行为的不屑与不耻和反对。这是考虑过防止下套的)[。](https://twitter.com/itsIvanOk/status/878688189027946496#——保护所爱--表达出爱，就是表达出对打压爱(爱人权爱自由)的行为的不屑与不耻和反对，保护爱--看出下套并反对下套)[-](https://twitter.com/itsIvanOk/status/878702152163745793#在现代社会,人是自愿结成族裔来保护自己的权利的,用法律保护人的权利,结成国家,爱自由就是要求你这块土地的执政党来保护人的权利) [-](http://www.australia.com/zh-hk/events/2016/february/sydney-mardi-gras.html)
 
 
 
