@@ -122,6 +122,7 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 
 说明
 - 一天8小时，16小时是闲置的，这个身份非常杀时间 / 有非常多的M值可以积累
+- 往大了说叫做保养 而且健身的人很多
 
 
 
