@@ -137,13 +137,15 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 - 可以用这个好形象来表达爱 [-](https://twitter.com/TomasinoWeb/status/878893558605824000#Pride2017inManilaPhilippines) [-](https://twitter.com/justlaughu/status/878991249969106944)
 
 同性恋形象 让我想到：
-- 人们是不care, 但在 Pride2017 的时候会来出来支持同性恋 保护同性恋的权利
+- 人们是不care, 但在 Pride2017 的每年6月 会来大游行，支持同性恋 保护同性恋的权利
 - 同样是和人权相关的
 - 同样是不被大陆人接受, 但被一般外国人接受
 - 是很棒的形象，能很快从思路上转换到我的身份 (我通过捍卫价值, 得到新的身份)
 - - 同样是可以用爱来反对(爱人权爱自由,反对对同性恋权利的不保护) , 用 sweet 微笑 庆祝 游行 来传播爱
 - - 跟洋人员工一起 被坑了一起维护权利，而不是和大陆员工-公司违反劳动条例了他们都不懂告发 [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-window/人物动机.md)
 - - 在思路上，很容易转换到支持人权 (支持保护个人权利, 支持民族自决权, 支持自愿立国, 支持人们保护自己的权利而反对暴政，支持台湾独立香港独立新疆西藏独立广东独立)
+- - 在内 管好自己 几大原则 承认自己来错地方了 讲前提
+- - 在外 九宫格 说自己的感觉(简单+经常+对自己，有力+反应快+有重点) 小说家 看出下套，[羊圈](https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-lightshelf/羊圈.md) 三人格 都能用上
 - - 那些等着看同性恋的笑话的人，他们也是在下套，而且并不是每个国家都支持法律保护同性恋权利
 
 
