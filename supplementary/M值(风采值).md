@@ -120,6 +120,8 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 - 进攻：冷漠的心, 谦虚的心, 虚心态度等于冷静观察, 不公开标准
 - 防守：别人不care你的政党, 你care他们的下套 (应对外部世界 - 九宫格 - local-lightshelf , 对外部世界的省时观察 - 小说家 - local-window)
 
+说明
+- 一天8小时，16小时是闲置的，这个身份非常杀时间 / 有非常多的M值可以积累
 
 
 
