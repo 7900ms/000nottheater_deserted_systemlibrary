@@ -126,5 +126,8 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 - 往大了说叫做保养 往小了说叫升级 (“健身榜”总排名由很靠后升级到很靠前) 而且健身的人很多 有利于隐藏身份
 - 长得好看有助于激发爱情 [-](https://twitter.com/GSWdelivery/status/878948629133762560#在一群人里的爱情,球队-Steph-Ayesha--兄弟你有16小时闲置的感觉)
 
+说明
+- 用 sweet 微笑来掩盖一切 [-](https://twitter.com/Sabrina0527/status/877181958622658561#更加有力。)
+
 
 
