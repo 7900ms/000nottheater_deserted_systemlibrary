@@ -115,6 +115,7 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 - 一个搞封闭式训练的健身运动员 [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/physical-physique)
 
 说明
+- 很 neat 的感觉
 - 性价比高：身份/话语值 (不同身份的互通性/努力值)
 - 羊圈 判断他人身份 反侦察和隐藏身份
 - 进攻：冷漠的心, 谦虚的心, 虚心态度等于冷静观察, 不公开标准
