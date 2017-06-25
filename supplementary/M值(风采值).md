@@ -65,7 +65,7 @@ M值
 
 1 达到同样的效果，多花了多少费用 时间 精力 [-](https://www.v2ex.com/notes/28779) <br>
 2 看他们出的笑话：外：我宁愿让其他人做我的小白鼠，去试用这些新语言。到后来我有空了，再去看看他们的成功或者失败经历；内：我为什么要花精力去学一个新的语言，去折腾不成熟的工具，放下我真正感兴趣的算法和数据结构等问题呢 [-](http://www.yinwang.org/blog-cn/2017/05/23/kotlin#我宁愿让其他人做我的小白鼠，去试用这些新语言。到后来我有空了，再去看看他们的成功或者失败经历) <br>
-3 不值得关注 无谓的争执 与我无关 [-](https://web.archive.org/web/20170308073446/http://www.yinwang.org/blog-cn/2013/03/07/linux-windows-mac) <br>
+3 不值得关注 无谓的争执 与我无关 [-](https://web.archive.org/web/20170308073446/http://www.yinwang.org/blog-cn/2013/03/07/linux-windows-mac#这些win-mac-linux系统的纷争基本上已经不关我什么事) <br>
 
 
 
