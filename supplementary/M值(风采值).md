@@ -112,7 +112,7 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 # M
 
 形象 (典型形象 / 可隐藏身份的形象)
-- 一个搞封闭式训练的健身运动员 [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/physical-physique#肯定和倒腾手机的不一样,肯定和多管闲事的大妈不一样,肯定和瞻前顾后的身份不明者不一样--都躲避了)
+- 一个搞封闭式训练的健身运动员 [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/physical-physique#肯定和倒腾手机的不一样,肯定和多管闲事的大妈不一样,肯定和瞻前顾后的身份不明者不一样--都躲避了-low-key)
 
 说明
 - 很 neat 的感觉
