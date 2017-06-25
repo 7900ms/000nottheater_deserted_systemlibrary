@@ -61,6 +61,8 @@ M值
 - 表现出 civil —— 实际上, 老外是虚虚实实而且实的部分一定坑蒙拐骗拿到的, 所以 必须拿到之后 才会有 civil [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-心理-civil.md)
 - 当前场景, 知道怎么回事 (三人格)
 - 表现出 知道人家不在乎你 初次见面蜕化成喜剧角色衣物保暖下意识摆笑摆POSE 身份判断人家可能不在乎你怎样, 你随便人家可能不在乎你怎样
+- 说自己说自己酒精过敏
+
 
 
 -
