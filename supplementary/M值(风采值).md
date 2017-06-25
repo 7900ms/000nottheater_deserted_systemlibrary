@@ -152,7 +152,7 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 - - “支持同性恋” 这一行为背后的价值观是传播爱，在现代社会就是支持人保护自己的权利 ( 通过法律保护权利 ) ，支持人权
 - - 反对同性恋，背后的价值观是，不允许你按照你自己的性取向做事，不允许你按照你自愿的方式去做事，即使你是受害者 你也要服
 - - 聪明, 平滑, 暗示性很足, 本身就是给人下套 明牌可推想, 安全, 自带保持距离的属性，没有比“支持同性恋”更好的形象了，基本上模拟了所有可能会发生的情况，情况 情况怎么应对，人的身份，考虑可能受到的攻击 (过程,形象,结果)，承认自己走错地方了等，同时可以安全地激发各种感觉(简单+经常+对自己,有力+反应快+有重点) (弄坏不至于众叛亲离,等于把握主动)
-- - 这本身就是一种 mind game 的锻炼, 得到支持同性恋和支持人权的互通的东西 [-](https://twitter.com/LegionHoops/status/878756021161807872#锻炼得到通用的majorSkill)[-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/supplementary/Zhihua#锻炼得到能互通的东西)
+- - 玩好这个形象，这本身就是一种 mind game 的锻炼, 得到支持同性恋和支持人权的互通的东西 [-](https://twitter.com/LegionHoops/status/878756021161807872#锻炼得到通用的majorSkill)[-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/supplementary/Zhihua#锻炼得到能互通的东西)
 
 
 
