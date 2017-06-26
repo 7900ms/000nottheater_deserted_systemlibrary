@@ -15,7 +15,7 @@
 想着自己的人 早起 -> 在本身份上得体把握分寸,晋级其他更高的身份 -> 想着别人(想着教育别人)不会早起 ->> 他什么身份 ? (慢枣子想着他的事,可以呵呵。解救妓女啊)
 
 下套：
-你就是一个照顾人的老妈子的身份。夸你照顾别人照顾得好。你就得照顾别人，别人不能自己照顾自己，别人不愿意自己照顾自己。 [——](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-week-授权.md)
+你就是一个照顾人的老妈子的身份。夸你照顾别人照顾得好。你就得照顾别人，别人不能自己照顾自己，别人不愿意自己照顾自己。 [——](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-week-授权.md#身份-把握分寸-晋级-爬藤)
 
 打游戏 -> 别人替你打 -> 打坏了
 
