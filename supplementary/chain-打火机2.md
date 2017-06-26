@@ -44,4 +44,9 @@ https://twitter.com/tbhmeangirl/status/877131383235198976
 各回各家
 https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/M值(风采值).md# no sleepy. it is part of The Plan
 
+库里 打得好 薪水低, 实打实
+http://www.sohu.com/a/152245981_473919
+
+
+
 ```
