@@ -154,7 +154,7 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 - - 反对同性恋，背后的价值观是，不允许你按照你自己的性取向做事，不允许你按照你自愿的方式去做事，即使你是受害者 你也要服
 - - 聪明, 平滑, 暗示性很足, 本身就是给人下套 明牌可推想, 安全, 自带保持距离的属性，没有比“支持同性恋”更好的形象了，基本上模拟了所有可能会发生的情况，情况 情况怎么应对，人的身份，考虑可能受到的攻击 (过程,形象,结果)，承认自己走错地方了等，同时可以安全地激发各种感觉(简单+经常+对自己,有力+反应快+有重点) (弄坏不至于众叛亲离,等于把握主动) ，激发对于周围人的衡量 (可能别人并不care你 你的价值 不care你的支持同性恋的价值和形象身份, 跟周围人淡然共处[)](#基本上他们只care你的钱和地位)
 - - 玩好这个形象，这本身就是一种 mind game 的锻炼[，](https://twitter.com/SpacePorns/status/878995719201452033#在那个不好不坏的环境里--还算安全的环境里但得靠自己搞定) 在个人素质上 得到支持同性恋和支持人权的互通的东西 [-](https://twitter.com/LegionHoops/status/878756021161807872#锻炼得到通用的majorSkill)[-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/supplementary/Zhihua#锻炼得到能互通的东西)
-- - it is part of ***The Plan*** [-](https://www.youtube.com/watch?v=XMb_nKGhSTQ#yeah-it-is-a-plan-to-destroy-their-plan--then-run-into-some-really-funny-situation--then-i-go-home(from-the-playground)(whatElseDoIDogaddd))
+- - it is part of ***The Plan*** [-](https://www.youtube.com/watch?v=XMb_nKGhSTQ#yeah-it-is-a-plan-to-destroy-their-plan--then-run-into-some-really-funny-situation--then-i-go-home(from-the-playground)(whatElseDoIDogaddd)) [-](#from-the-playground-i-choose-to-come-at-7-then-now-its-9-i-can-go-home)
 
 
 
