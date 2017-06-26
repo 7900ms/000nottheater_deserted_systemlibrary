@@ -26,6 +26,10 @@ chain 未来人
 (十分能面向未来)
 
 
+最好是 在某个时间地点里，很多人。融入大家。玩完后，各回各家
+在自己呆着的时候, 十分能面向未来
+有那么一段时间, 是闭关的，捋清自己 (十分能忍受寂寞)
+
 
 顺着来和逆着来 的感觉 - (自己开电脑看网页)顺着来舒服(不要推送)
 https://www.v2ex.com/notes/28798
@@ -35,5 +39,8 @@ https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/suppl
 
 行为艺术
 https://twitter.com/tbhmeangirl/status/877131383235198976
+
+各回各家
+https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/M值(风采值).md#t is part of The Plan
 
 ```
