@@ -165,7 +165,7 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 
 friendly 开心 [-](https://youtu.be/QdMsjTOSfPg?t=1m41s#脸色不好等于不friendly)
 
-sleepy 没睡醒 不开心 [-](https://twitter.com/i/moments/879175194320842752#sleepy)
+sleepy 没睡醒 不开心 [-](https://twitter.com/i/moments/879175194320842752#sleepy) [-](https://www.v2ex.com/notes/28797#傻的dull)
 
 boring ~ 装逼的感觉 [-](https://youtu.be/3eSQJNWHUvA?t=9m)
 
