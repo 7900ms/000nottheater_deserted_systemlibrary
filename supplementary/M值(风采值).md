@@ -159,4 +159,16 @@ local-window [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware
 
 
 
+= = =
+
+形容词
+
+friendly 开心 [-](https://youtu.be/QdMsjTOSfPg?t=1m41s#脸色不好等于不friendly)
+
+sleepy 没睡醒 不开心 [-](https://twitter.com/i/moments/879175194320842752#sleepy)
+
+boring ~ 装逼的感觉 [-](https://youtu.be/3eSQJNWHUvA?t=9m)
+
+-
+
 
