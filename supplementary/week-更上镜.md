@@ -1,5 +1,5 @@
 
-week-更上镜
+week-更上镜 [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/week-更上镜.md#红色人士也会摆POSE。有“这副好身躯-赋予其意义”的--身份的对抗-和红色人士对抗)
 
 摆 POSE
 - 可以强吻别人 (结果可能会比 丑人 更强一点儿) -
