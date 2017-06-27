@@ -169,6 +169,10 @@ sleepy 没睡醒 不开心 [-](https://twitter.com/i/moments/879175194320842752#
 
 boring ~ 装逼的感觉 [-](https://youtu.be/3eSQJNWHUvA?t=9m)
 
+不娘 ~ 深色衣服 [-](https://youtu.be/3eSQJNWHUvA?t=9m17s) [-](https://youtu.be/MJx9hI1Dpbw?t=4m33s#深色衣服--可以做傻事而不显得太傻)
+
+
+
 -
 
 
